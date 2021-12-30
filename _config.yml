@@ -11,9 +11,9 @@ minimal_mistakes_skin    : "dark" # "air", "aqua", "contrast", "dark", "dirt", "
 
 # Site Settings
 locale                   : "en-US"
-title                    : "Minimal Mistakes"
+title                    : "Marc's Separation"
 title_separator          : "-"
-subtitle                 : "A Jekyll theme"
+subtitle                 : "His way to success"
 name                     : &name "Michael Rose" # &name is a YAML anchor which can be *referenced later
 description              : &description "A flexible Jekyll theme for your blog or site with a minimalist aesthetic."
 url                      : https://marckean.github.io # the base hostname & protocol for your site e.g. "https://mmistakes.github.io"
