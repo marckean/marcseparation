@@ -1,6 +1,6 @@
 ---
 title: "Dad is Fun"
-permalink: /
+permalink: /dad_fun/
 excerpt: "How to quickly install and setup Minimal Mistakes for use with GitHub Pages."
 last_modified_at: 2021-06-07T08:48:05-04:00
 redirect_from:
@@ -14,23 +14,23 @@ The report contained the following:
 
 ![](./blobs/lovedad/Report1.png)
 
-- He already has failed to make his time a rich one for the children with child centered experiences
+- "He already has failed to make his time a rich one for the children with child centered experiences"
 
 ![](./blobs/lovedad/Report2.png)
 
-- Rather than picking up the que that they needed to go outside and do physical activity together
+- "Rather than picking up the que that they needed to go outside and do physical activity together"
 
 ![](./blobs/lovedad/Report3.png)
 
-- The Fathers difficulty in understanding the age-appropriate needs of his children
+- "The Fathers difficulty in understanding the age-appropriate needs of his children"
 
 ![](./blobs/lovedad/Report4.png)
 
-- The inflexibility which is due to his neurodevelopmental disorder is a major deficit to his ability to relate to all people and in particular his own children
+- "The inflexibility which is due to his neurodevelopmental disorder is a major deficit to his ability to relate to all people and in particular his own children"
 
 ![](./blobs/lovedad/Report5.png)
 
-- The father's nature of having less emotional understanding and his own concrete beliefs about what they need, has meant he has cut himself off from them psychologically.
+- "The father's nature of having less emotional understanding and his own concrete beliefs about what they need, has meant he has cut himself off from them psychologically."
 
 Since separation, the kids and Dad have done many fun things together.
 
