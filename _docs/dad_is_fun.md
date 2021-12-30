@@ -15,5 +15,5 @@ Since separation, the kids and Dad have done many fun things together.
 
 |  |  |
 | ----------- | ----------- |
-| <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/lovedad/Picture1.png"></p> | <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/lovedad/Picture2.png"></p> |
-| <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/lovedad/Picture3.png"></p> | <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/lovedad/Picture4.png"></p> |
+| <img width="400" src="../blobs/lovedad/Picture1.png"> | <img width="400" src="../blobs/lovedad/Picture2.png"> |
+| <img width="400" src="../blobs/lovedad/Picture3.png"> | <img width="400" src="../blobs/lovedad/Picture4.png"> |
