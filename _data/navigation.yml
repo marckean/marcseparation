@@ -44,7 +44,7 @@ docs:
     children:
       - title: "Living Conditions"
         url: /living_conditions/
-      - title: "issues with mental health/"
+      - title: "Issues with mental health"
         url: /issues_with_mental_health
 
 # sidebar navigation list sample
