@@ -1,6 +1,6 @@
 ---
 layout: splash
-permalink: /
+permalink: /docs/quick-start-guide/
 hidden: true
 header:
   overlay_color: "#5e616c"
