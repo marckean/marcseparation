@@ -44,6 +44,8 @@ docs:
     children:
       - title: "Dad is Fun"
         url: /
+      - title: "Kids at the Park"
+        url: /kids_park/
       - title: "Kids Eating"
         url: /kids_eating/
   - title: Mother
