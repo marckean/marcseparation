@@ -31,7 +31,7 @@ Since separation, the kids and Dad have done many fun things together.
 | ![](./blobs/lovedad/Picture29.png) | ![](./blobs/lovedad/Picture30.png) |
 | ![](./blobs/lovedad/Picture31.png) | ![](./blobs/lovedad/Picture32.png) |
 | ![](./blobs/lovedad/Picture33.png) | ![](./blobs/lovedad/Picture34.png) |
-| ![](./blobs/lovedad/Picture35.png) | ![](./blobs/lovedad/Picture36.png) |
+| ![](./blobs/lovedad/Picture35.png) <br> Paternal cousins, Nathan & Connor | ![](./blobs/lovedad/Picture36.png) |
 | ![](./blobs/lovedad/Picture37.png) | ![](./blobs/lovedad/Picture38.png) |
 | ![](./blobs/lovedad/Picture39.png) | ![](./blobs/lovedad/Picture40.png) |
 | ![](./blobs/lovedad/Picture41.png) | ![](./blobs/lovedad/Picture42.png) |
