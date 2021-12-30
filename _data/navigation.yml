@@ -34,6 +34,8 @@ main:
 
 # documentation links
 docs:
+  - title: "Home"
+    url: /
   - title: Family Report
     children:
       - title: "Contradictions"
@@ -43,7 +45,7 @@ docs:
   - title: Father
     children:
       - title: "Dad is Fun"
-        url: /
+        url: /dad_fun
       - title: "Kids at the Park"
         url: /kids_park/
       - title: "Kids Eating"
