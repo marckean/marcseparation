@@ -10,7 +10,22 @@ toc: true
 
 [//]: # (margin:top right bottom left)
 
+![](./blobs/lovedad/Report1.png)
+<br>
+![](./blobs/lovedad/Report2.png)
+<br>
+![](./blobs/lovedad/Report3.png)
+<br>
+![](./blobs/lovedad/Report4.png)
+<br>
+![](./blobs/lovedad/Report5.png)
+<br>
+
 Since separation, the kids and Dad have done many fun things together.
+
+- I am a fun and the kids love being with me & their extended paternal family
+- Photos all of which since separation (since Nov 2019)
+- Kids are more than happy and at piece with themselves
 
 |  |  |
 | ----------- | ----------- |
