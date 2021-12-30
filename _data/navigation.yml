@@ -34,6 +34,12 @@ main:
 
 # documentation links
 docs:
+  - title: Family Report
+    children:
+      - title: "Contradictions"
+        url: /report_contradictions/
+      - title: "Themes"
+        url: /report_themes/
   - title: Father
     children:
       - title: "Dad is Fun"
