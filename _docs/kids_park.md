@@ -12,9 +12,11 @@ toc: true
 
 Since separation, the kids and Dad have done many fun things together.
 
+Paternal cousins below from Sydney, 3 first cousins from the father, each cousin with their own young kids. They live spread across in Sydney and on the central coast NSW. 
+
 ![](../blobs/park/Picture49.png)
 
-Paternal cousins from Sydney, 3 first cousins from the father, each cousin with their own young kids. They live spread across in Sydney and on the central coast
+Below, other photos of the kids at the park. 
 
 |  |  |
 | ----------- | ----------- |
