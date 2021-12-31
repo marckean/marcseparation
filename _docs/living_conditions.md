@@ -15,7 +15,7 @@ toc: true
 
 - "She copes beautifully with a big house and takes a lot of pride in it."
 
-# My rebuttal
+## My rebuttal
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/gDr0XIgdk7A?Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
@@ -32,7 +32,7 @@ These videos are real walk through videos of the state of the home since separat
     src="https://www.youtube.com/embed/hixvOH7lxVo?Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
 </iframe>
 
-<br>
+This video below, you will notice that about half way through that there's a completely loose cable on the back balcony which is totally dangerous, as kids can fall straight through about 5+ meters to the ground. 
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/1oJeG2IlXPQ?Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
