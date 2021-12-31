@@ -57,9 +57,15 @@ docs:
       - title: "Living Conditions"
         url: /living_conditions/
       - title: "Issues with mental health"
-        url: /issues_with_mental_health
+        url: /issues_with_mental_health/
       - title: "Alex's sister, Julia's Mental Health"
         url: /julia_spence_mental_health/
+  - title: Events
+    children:
+      - title: "Chloe COVID Test, Alex calling Police in front of the kids"
+        url: /chloe_covid_test/
+      - title: "Aunty Vic calling me a dickhead in front of the kids"
+        url: /issues_with_mental_health/
 
 # sidebar navigation list sample
 sidebar-sample:
