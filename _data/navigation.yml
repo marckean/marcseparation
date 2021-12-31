@@ -56,6 +56,8 @@ docs:
     children:
       - title: "Living Conditions"
         url: /living_conditions/
+      - title: "Living Comparisons"
+        url: /living_comparisons/
       - title: "Issues with mental health"
         url: /issues_with_mental_health/
       - title: "Alex's sister, Julia's Mental Health"
