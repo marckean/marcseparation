@@ -10,9 +10,13 @@ toc: true
 
 [//]: # (margin:top right bottom left)
 
-This family report does a great job in discrediting me as a father with Asperger's syndrome. Asperger's syndrome is very common and very highly successful people have Asperger's syndrome, e.g. Bill Gates & Elon Musk and likewise, I shouldn't be penalised as a father just because I may have Asperger's syndrome. 
+This family report does a great job in discrediting me as a father with Asperger's syndrome. Asperger's syndrome is very common and very highly successful people have Asperger's syndrome, e.g. Bill Gates & Elon Musk. Likewise, I shouldn't be penalised as a father just because I **may** have Asperger's syndrome. 
 
-I say **may**, as it says from [Family Doctor](https://familydoctor.org/condition/aspergers-syndrome/) that there is no blood test or medical imaging scan to diagnose the Asperger's syndrome condition. Doctors compare a child’s behavior and development to a milestone checklist against same-age peers. For me, I simply filled out an Excel questionnaire and looked at the results, and I was about half way on the spectrum.
+## Official Diagnosis
+
+I say (**may**) have Asperger's syndrome, as it says from [Family Doctor](https://familydoctor.org/condition/aspergers-syndrome/) that there is no blood test or medical imaging scan to diagnose the Asperger's syndrome condition. Doctors compare a child’s behavior and development to a milestone checklist against same-age peers. For me, I simply filled out an Excel questionnaire and looked at the results, and I was about half way on the spectrum.
+
+## Information about parents with Asperger's syndrome
 
 Some highlights from a report about [parents with Asperger's](https://www.mghclaycenter.org/parenting-concerns/families/asperdad-growing-up-with-a-parent-on-the-autism-spectrum-maybe/) the report titled **AsperDad: Growing Up With a Parent on the Autism Spectrum**.
 
