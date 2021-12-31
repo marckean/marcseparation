@@ -38,6 +38,8 @@ docs:
     url: /
   - title: Family Report
     children:
+      - title: "What I mentioned that was missed"
+        url: /report_missed_mentions/
       - title: "Contradictions"
         url: /report_contradictions/
       - title: "Themes"
@@ -56,6 +58,8 @@ docs:
         url: /living_conditions/
       - title: "Issues with mental health"
         url: /issues_with_mental_health
+      - title: "Alex's sister, Julia's Mental Health"
+        url: /julia_spence_mental_health/
 
 # sidebar navigation list sample
 sidebar-sample:
