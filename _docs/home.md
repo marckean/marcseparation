@@ -12,7 +12,7 @@ toc: true
 
 ## About Marc Kean
 
-![Marc](/blobs/Marc-17.jpg)
+![Marc](./blobs/Marc-17.jpg)
 
 This family report does a great job in discrediting me as a father with Asperger's syndrome. Asperger's syndrome is very common and very highly successful people have Asperger's syndrome, e.g. Bill Gates & Elon Musk. Likewise, I shouldn't be penalised as a father just because I **may** have Asperger's syndrome. 
 
