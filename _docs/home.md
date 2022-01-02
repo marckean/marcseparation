@@ -24,7 +24,7 @@ If you read this family report, you'll see that about half of it focuses on life
 
  - Kids will naturally have a better relationship with their mother, as they have **more time together**
  - The majority of money for the kids is spend by way of child support, **$2.4K~ / month is given to the mother**. As a father I don't have the luxury to buy as many things for the kids, such as bikes or scooters etc.
- - Not by choice, but as the stigma of men in family separations (people seem to think all men are physically violent), I was told to move out by my lawyer. As Alex is a female, authorities default stance is to side with her with any discrepancies between husband/wife. As **tenants in common** to the matrimonial home, both Alex and I are both 50/50 share of the home. All of my money is tied up in this property. Over the 8 years living in the matrimonial home I paid $303~ of my own wages towards the mortgage of the matrimonial home where Alex paid none. It's meant that when I reluctantly moved out of the home in Jan 2020, I had no choice but to rent in an apartment ***temporarily*** (now going on 2 years) until this separation is totally completed. I have never wanted to rent in an apartment and it's always been my plan to buy another house in the area once this separation is finished. However due to COVID-19, this has delayed things significantly in the court system and I have experienced unprecedented challenges during this time classed as temporary. It's due to this, Alex has had the upper hand with parenting ever since separation:
+ - Not by choice, but as the stigma of men in family separations (people seem to think all men are physically violent), I was told to move out of my own home by my lawyer. As Alex is a female, authorities default stance is to side with her with any discrepancies between husband/wife. As **tenants in common** to the matrimonial home, both Alex and I are both 50/50 share of the home. All of my money is tied up in this property. Over the 8 years living in the matrimonial home I paid $303~ of my own wages towards the mortgage of the matrimonial home where Alex paid none. It's meant that when I reluctantly moved out of the home in Jan 2020, I had no choice but to rent in an apartment ***temporarily*** (now going on 2 years) until this separation is totally completed. I have never wanted to rent in an apartment and it's always been my plan to buy another house in the area once this separation is finished. However due to COVID-19, this has delayed things significantly in the court system and I have experienced unprecedented challenges during this time classed as temporary. It's due to this, Alex has had the upper hand with parenting ever since separation:
    - More room, such as a trampoline in the back yard
    - A back yard, more time spent outside
    - More storage space
@@ -36,7 +36,7 @@ If you read this family report, you'll see that about half of it focuses on life
  Of course **I am greatly disadvantaged and unfairly judged** with this family report. The report focuses on the **now**, not the **future** for when my life is not **temporary** and it is back to normal. 
 
  As we look to the future, once the separation is over, my plan it take my money from the matrimonial house and buy another house, and it's then that my time with the kids can be much more quality time spent with the kids.
- 
+
  ## About Marc Kean
 
 ![Marc](./blobs/Marc-17.jpg)
