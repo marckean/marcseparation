@@ -35,7 +35,8 @@ If you read this family report, you'll see that about half of it focuses on life
  
  Of course **I am greatly disadvantaged and unfairly judged** with this family report. The report focuses on the **now**, not the **future** for when my life is not **temporary** and it is back to normal. 
 
- As we look to the future, once the separation is over, my plan it take my money from the matrimonial house and buy another house, and it's then that my time with the kids can be much more quality time spent with the kids. 
+ As we look to the future, once the separation is over, my plan it take my money from the matrimonial house and buy another house, and it's then that my time with the kids can be much more quality time spent with the kids.
+ 
  ## About Marc Kean
 
 ![Marc](./blobs/Marc-17.jpg)
