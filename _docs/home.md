@@ -15,7 +15,7 @@ If you read this family report, you'll see that about half of it focuses on life
 
  The other thing that we need to realise is that ever since Alex and I separated when I moved out of the family home in January 2020, I have only had the kids for 4 nights a fortnight Vs what Alex's time with the kids which is 10 nights a fortnight. We have to remember that this makes a hue difference in judging my time with the kids, as I don't get the same time with the kids that Alex does at 71.4%, I only get the kids for 28.6% of the time. 
  
- Alex has always been the primary caregiver, so that anytime I get the kids, there's always that adjustment period as we know both parents are opposites of each other and it also means that 
+ Alex has always been the primary caregiver, so that anytime I get the kids, there's always that adjustment period as we know both parents are opposites of each other and it also means that ......
 ## About Marc Kean
 
 ![Marc](./blobs/Marc-17.jpg)
