@@ -9,7 +9,7 @@ toc: true
 ---
 
 [//]: # (margin:top right bottom left)
-
+## Statements from the report
 ![](../blobs/kidstothepark/report_kidspark1.png)
 
 - *The Children complained that he rarely takes them to the park*
@@ -19,6 +19,8 @@ toc: true
 - *The Mother has a good understanding of their physical needs and, takes them frequently to the park, encourages them to play sports and is engaging them with the extended family*
 
 ![](../blobs/kidstothepark/report_kidspark3.png)
+
+## My rebuttal
 
 Since separation, the kids and Dad have done many fun things together.
 
