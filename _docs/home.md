@@ -10,19 +10,38 @@ toc: true
 
 [//]: # (margin:top right bottom left)
 
-## Quick background
-If you read this family report, you'll see that about half of it focuses on life prior to now, when Alex and I were still together living in the matrimonial home. For starters, this is irrelevant, as that was over 2 years ago and things have changes significantly. 
+## My summary of the report
+### Focus on previous life
+If you read this family report, you'll see that about half of it focuses on life prior to now, when Alex and I were still together living in the matrimonial home. For starters, this is irrelevant, as that was over 2 years ago and things have changes significantly. Things are said in the report about how I played a husband role to the mother, this is no longer the case as not I am no longer a husband and playing a sole parent role only. Not only this, the kids are not subjected to the constant bickering and arguments that they witnessed their parents practice on a daily basis. 
+
+### Time with the kids
 
  The other thing that we need to realise is that ever since Alex and I separated when I moved out of the family home in January 2020, I have only had the kids for 4 nights a fortnight Vs what Alex's time with the kids which is 10 nights a fortnight. We have to remember that this makes a hue difference in judging my time with the kids, as I don't get the same time with the kids that Alex does at 71.4%, I only get the kids for 28.6% of the time. 
  
- Alex has always been the primary caregiver, so that anytime I get the kids, there's always that adjustment period as we know both parents are opposites of each other and it also means that ......
-## About Marc Kean
+ Alex has always been the primary caregiver, so that anytime I get the kids, there's always that adjustment period as we know both parents are opposites of each other.
+
+ As Alex is already the **primary** care giver and with 71.4% of time spent with the kids in the past 2 years, it's means that I am already the underdog.
+
+ - Kids will naturally have a better relationship with their mother, as they have **more time together**
+ - The majority of money for the kids is spend by way of child support, **$2.4K~ / month is given to the mother**. As a father I don't have the luxury to buy as many things for the kids, such as bikes or scooters etc.
+ - Not by choice, but as the stigma of men in family separations (people seem to think all men are physically violent), I was told to move out by my lawyer. As **tenants in common** to the matrimonial home all of my money is tied up in this property. Over the 8 years living in the matrimonial home I paid $303K of my own wages towards the mortgage of the matrimonial home where Alex paid none. It's meant that I have had no choice but to rent in an apartment temporarily (now going on 2 years) until this separation is totally completed. I have never wanted to rent in an apartment and it's always been my plan to buy another house in the area once this separation is finished. However due to COVID-19, this has delayed things significantly. Due to this, Alex has had the upper hand with parenting:
+   - More room, such as a trampoline in the back yard
+   - A back yard, more time spent outside
+   - More storage space
+   - Much larger living area
+   - Familiar environment for children
+   - House Vs an apartment, quality of life is much better in a house
+ 
+ Due to this, of course **I am greatly disadvantaged and unfairly judged** with this family report.
+
+ As we look to the future, once the separation is over, my plan it take my money from the matrimonial house and buy another house, and it's then that my time with the kids can be much more quality time spent with the kids. 
+ ## About Marc Kean
 
 ![Marc](./blobs/Marc-17.jpg)
 
 This family report does a great job in discrediting me as a father with Asperger's syndrome. Asperger's syndrome is very common and very highly successful people have Asperger's syndrome, e.g. Bill Gates & Elon Musk. Likewise, I shouldn't be penalised as a father just because I **may** have Asperger's syndrome. 
 
-## Official Diagnosis
+## No official Asperger's diagnosis
 
 I say (**may**) have Asperger's syndrome, as it says from [Family Doctor](https://familydoctor.org/condition/aspergers-syndrome/) that there is no blood test or medical imaging scan to diagnose the Asperger's syndrome condition. Doctors compare a child’s behavior and development to a milestone checklist against same-age peers. For me, I simply filled out an Excel questionnaire and looked at the results, and I was about half way on the spectrum.
 
