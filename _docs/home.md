@@ -53,7 +53,7 @@ Some highlights from a report about [parents with Asperger's](https://www.mghcla
 
 This is written by Hillary Hurst Bush, PhD. She is a clinical psychologist with expertise in the assessment of ASD. But also, she is the non-autistic child of someone on the autism spectrum.
 
-She says:
+**Hillary Hurst Bush** says:
 
 Based on my personal and professional experiences, there are some ways in which being on the autism spectrum can make parenting uniquely challenging: 
 
