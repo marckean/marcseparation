@@ -5,7 +5,11 @@ excerpt: "Instructions and suggestions for upgrading the theme."
 last_modified_at: 2021-06-23T08:15:34-04:00
 toc: true
 ---
+## Statements from the report
 
+![Breast Feeding Accusation 1](../blobs/breastfeedingspyallegation/report_breastfeeding1.png)
+
+## My rebuttal
 ### Monday, November 2, 2015
 
 Both Victoria and her husband have seriously warped view of the world, accusing me of spying on Victoria breastfeeding in our backyard.

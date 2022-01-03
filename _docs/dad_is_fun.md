@@ -32,6 +32,7 @@ The report contained the following:
 ![](../blobs/lovedad/Report5.png)
 
 - *The father's nature of having less emotional understanding and his own concrete beliefs about what they need, has meant he has cut himself off from them psychologically*
+## My rebuttal
 
 Since separation, the kids and Dad have done many fun things together.
 
