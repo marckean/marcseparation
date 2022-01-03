@@ -17,6 +17,12 @@ toc: true
 
 ## My rebuttal
 
+### Children's bedrooms
+
+### Kitchen
+
+### General living
+
 The below is a video when I went to the house at one stage since separation and I mowed the lawn and did the edges. I did a comparison video on the before and after, you will see a massive difference. 
 
 <iframe width="420" height="315"
