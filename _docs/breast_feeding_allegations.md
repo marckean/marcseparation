@@ -7,10 +7,15 @@ toc: true
 ---
 Both Victoria and her husband have seriously warped view of the world, accusing me of spying on Victoria breastfeeding in our backyard.
 
-|  |  |
-| ----------- | ----------- |
-| ![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email.png) | ![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email_photo.png.png) |
+#### Email from Alex
+Alex was telling Vic & Andrew to stop with the accusations and that the camera didn't pick up Vic breastfeeding in the backyard:
+![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email.png)
 
+A view from the camera:
+![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email_photo.png.png)
+
+#### Reply back from Andrew
 ![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email4.png)
 
+#### Alex's reply to Andrew
 ![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email5.png)
