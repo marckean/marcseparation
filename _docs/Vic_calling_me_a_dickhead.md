@@ -38,4 +38,7 @@ The kids told me that after I hung up the phone on that night, Alex's sister Vic
  
 Alex's sister calling me a dickhead in front of the kids - the kids told me they didn't like it at all and were totally uncomfortable and felt weird. 
 
+### Court Order
+The current court interim parenting order below explicitly says that *Each parent is hereby restrained from denigrating the other parent, the other parents spouse and/or partner or immediate family in the presence or hearing of the children, **or allow or submit to any other person doing so***.
+
 ![Interim parenting order, section 25](../blobs/courtorders/section_25.png)
