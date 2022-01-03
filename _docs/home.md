@@ -37,7 +37,7 @@ If you read this family report, you'll see that about half of it focuses on life
 
  As we look to the future, once the separation is over, my plan it take my money from the matrimonial house and buy another house, and it's then that my time with the kids can be much more quality time spent with the kids.
 
- ## About Marc Kean
+## About Marc Kean
 
 ![Marc](./blobs/Marc-17.jpg)
 
