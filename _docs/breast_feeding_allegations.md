@@ -14,7 +14,7 @@ This is the same day that Aunty Vic (Alex's sister) was at our house (Stratford 
 
 ### Background
 
-I had Netgear Arlo (version 1) security cameras that I installed to overlook each door into the home, as the house backs onto bush and there had been break-ins to the Tennis club behind our house. These security cameras were setup to detect movement. When they see movement, they record video for 10 seconds. While this may seem great, they run on batteries and it means you need to keep logging into the system every now and then and check how much battery is left on the cameras to ensure that they don't run flat. Then to order a replacement set of batteries is needed, or to change the batteries.
+I had Netgear Arlo (version 1) security cameras that I installed to overlook the outside of each door into the home, as the house backs onto bush and there had been break-ins to the Tennis club behind our house. The cameras came with stickers to position at each doorway on the outside of the house to let people know of Arlo Security Camera's on site and in action. Both Vic & Andrew previously commented on the cameras just after I installed them as they learnt from the stickers, and they were OK with it at the time, security. These security cameras were setup to detect movement. When they see movement, they record video for 10 seconds. While this may seem great, they run on batteries and it means you need to keep logging into the system every now and then and check how much battery is left on the cameras to ensure that they don't run flat. Then to order a replacement set of batteries is needed, or to change the batteries.
 
 ### Story
 
