@@ -22,7 +22,7 @@ So on this day at work, I did exactly that and remembered to logon to the web po
 
 ![Breast Feeding Accusation 1](../blobs/breastfeedingspyallegation/breastfeeding_accusation1.png)
 
-Victoria even went on to assume and accuse me that over the past 3 months I was viewing her breastfeeding, it's complete and utter nonsense that something so simple of me checking to the batteries of the cameras has turned into this absurd allegation.
+Victoria even went on to assume and accuse me that over the past 3 months I was viewing her breastfeeding, it's complete and utter nonsense that something so simple of me checking the batteries of the cameras has turned into this absurd allegation.
 
 It was absurd and this ruined the relationships of Vic, Andrew and (Charlie's cousin) Henry. Alex supported me on this (email below) and we didn't see or talk to them at all since this happened until after Alex and I separated. Once I had moved out, then all of a sudden Vic, Andrew, Henry & Chelsea were all back in Alex's life as Alex had no other choice, Alex needed help from her sister to help look after the kids while she worked. 
 
