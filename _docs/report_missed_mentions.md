@@ -24,3 +24,5 @@ In the last few months before separation, when going to bed, Alex never said goo
 Asked me if I had another partner, this wasn’t mentioned anywhere
 
 I am very instrumental in teaching the kids moral and values. I used the example of my father who worked in high profile jobs all his life as CEO of large companies where he had to represent the company with other business people, he understood correct manners. I also mentioned that having good manners is a good reflection on the kids themselves, also the parents and that other people take notice of this. I said that before separation one of the things I did which I was very proud of, from an early age I taught the kids table manners. To this day, the kids still exhibit good table manners and even teach some of their peers. 
+
+Victoria at a 5 start hotel with Henry out of control
