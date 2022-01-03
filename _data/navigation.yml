@@ -64,6 +64,8 @@ docs:
         url: /julia_spence_mental_health/
       - title: "Alex Parenting"
         url: /alex_parenting/
+      - title: "Insurance Fraud"
+        url: /insurance_fraud/
   - title: Events
     children:
       - title: "Chloe COVID Test, Alex calling Police in front of the kids"
