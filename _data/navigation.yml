@@ -42,7 +42,7 @@ docs:
         url: /dad_fun
       - title: "Kids at the Park"
         url: /kids_park/
-      - title: "Kids Eating"
+      - title: "Kids Eating, force-feeding"
         url: /kids_eating/
   - title: Mother
     children:
