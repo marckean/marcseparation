@@ -11,6 +11,8 @@ toc: true
 [//]: # (margin:top right bottom left)
 
 ## My summary of the report
+
+This family report does a great job in discrediting me as a father with Asperger's syndrome. Asperger's syndrome is very common and very highly successful people have Asperger's syndrome, e.g. Bill Gates & Elon Musk. Likewise, I shouldn't be penalised as a father just because I **may** have Asperger's syndrome. 
 ### Focus on previous life
 If you read this family report, you'll see that about half of it focuses on life prior to **now**, when Alex and I were still together living in the matrimonial home. For starters, this is irrelevant, as that was over 2 years ago and things have changes significantly, physically, mentally and emotionally. Things are mentioned in the report about how I played a husband role to the mother, however, this is no longer the case as not I am no longer a husband, this is the **past**, and **now** I am playing a sole parent role only. Not only this, the kids are no longer subjected to the constant bickering and arguments that they witnessed their parents practice on a daily basis. It means that the kids time spent with either parent can more of a **rich** experience than in the **past**, as each parent is somewhat happier. 
 
@@ -41,7 +43,7 @@ If you read this family report, you'll see that about half of it focuses on life
 
 ![Marc](./blobs/Marc-17.jpg)
 
-This family report does a great job in discrediting me as a father with Asperger's syndrome. Asperger's syndrome is very common and very highly successful people have Asperger's syndrome, e.g. Bill Gates & Elon Musk. Likewise, I shouldn't be penalised as a father just because I **may** have Asperger's syndrome. 
+Born and raised in QLD to two loving parents. Father a CEO of large enterprises all his life and mostly stay at home mother that did everything around the home. Born June 6, 1976, now working at Microsoft. Bill Gates has Asperger's and Microsoft are setup for all types of people. Being heavily into diversity & inclusion, Microsoft is a great company to work for. With my Asperger's, I am doing great things at Microsoft and supported by my manager and my peers.
 
 ## No official Asperger's diagnosis
 
