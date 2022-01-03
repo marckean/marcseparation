@@ -8,7 +8,7 @@ Victoria Kyngdon married to Andrew Kyngdon, two kids Henry & Chelsea.
 
 Both individuals are very strange
 
-- [Breast feeding spy allegation](../_docs/breast_feeding_allegations.md)
+- [Breast feeding spy allegation](/breast_feeding_allegations.md)
   - Turned something so simple into total nonsense
 - Victoria at a 5 star hotel swimming pool, Henry out of control
 - Andrew's warped views of Japanese cars
