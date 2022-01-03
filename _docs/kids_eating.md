@@ -8,7 +8,7 @@ last_modified_at: 2018-03-20T15:19:22-04:00
 
 ![](../blobs/reportforcefeeding/report_forcefeeding1.png)
 
-- Bec said *He was force-feeding the chidren but no-one has ever stopped it*
+- Bec said *He was force-feeding the children but no-one has ever stopped it*
 
 ![](../blobs/reportforcefeeding/report_forcefeeding2.png)
 
@@ -22,7 +22,7 @@ FIrstly, let's define what it really means if a kids says they're full and let's
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
 </audio>
 
-1. I am full, there's no more room in th kids stomach
+1. I am full, there's no more room in the kids stomach
 2. There's always room for desert
 3. Kids just don't feel like it
 
