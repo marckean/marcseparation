@@ -10,3 +10,7 @@ Both Victoria and her husband have seriously warped view of the world, accusing 
 |  |  |
 | ----------- | ----------- |
 | ![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email.png) | ![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email_photo.png.png) |
+
+![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email4.png)
+
+![](../blobs/breastfeedingspyallegation/breastfeeding_alex_email5.png)
