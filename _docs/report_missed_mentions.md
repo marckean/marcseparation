@@ -15,6 +15,8 @@ Whilst in the session with Dr Ruth Selig, there were several things that I menti
 
 - Ruth told me that *I’ll be putting in the report that Julia Spence committed suicide*. But she didn't. 
 
+![](../blobs/report_juliadiedinhersleep.png)
+
 I wasn’t an easy person to live with, I just wanted to understand why she’d be doing these things
 
 Alex constantly leave the house unlocked. As the house backs on to bush, this is a security risk to the kids if someone gains access to the house
