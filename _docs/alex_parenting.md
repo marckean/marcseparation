@@ -5,7 +5,11 @@ excerpt: "Instructions on how to customize the theme's default set of layouts, i
 last_modified_at: 2020-07-27
 ---
 
-Alex Parenting
+## Charlie going to the park by himself
+
+![](../blobs/charlieparkbyhimself/report_charlieparkbyhimself1.png)
+
+
 
 
 No structure
