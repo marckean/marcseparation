@@ -17,10 +17,11 @@ toc: true
 
 ![](../blobs/dadkidssport/report_kidssport2.png)
 
-- This is incorrect criticism, see below.
+- Expert's opinion - this is incorrect criticism, see below.
 
 ![](../blobs/dadkidssport/report_kidssport3.png)
 
+- Expert's opinion - the below makes this statement of concern irrelevant
 
 ## My rebuttal
 
