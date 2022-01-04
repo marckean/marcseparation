@@ -21,6 +21,12 @@ toc: true
     src="https://www.youtube.com/embed/gDr0XIgdk7A?Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
 </iframe>
 
+Not safe
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/hixvOH7lxVo?start=81&end=89?Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
+</iframe>
+
 The current living conditions for the home are totally the opposite to that of the report. 
 
 - Just like Alex’s mother, there’s crap left all over the place
@@ -39,3 +45,7 @@ This video below, you will notice that about half way through that there's a com
 </iframe>
 
 
+https://youtu.be/1oJeG2IlXPQ?list=PL9VBYmZ7H044pI-5hE4LMgubIyiRD4YfH&t=81
+
+https://youtu.be/1oJeG2IlXPQ?list=PL9VBYmZ7H044pI-5hE4LMgubIyiRD4YfH&t=89
+https://youtu.be/1oJeG2IlXPQ?list=PL9VBYmZ7H044pI-5hE4LMgubIyiRD4YfH&t=89
