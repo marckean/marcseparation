@@ -45,7 +45,3 @@ This video below, you will notice that about half way through that there's a com
 </iframe>
 
 
-https://youtu.be/1oJeG2IlXPQ?list=PL9VBYmZ7H044pI-5hE4LMgubIyiRD4YfH&t=81
-
-https://youtu.be/1oJeG2IlXPQ?list=PL9VBYmZ7H044pI-5hE4LMgubIyiRD4YfH&t=89
-https://youtu.be/1oJeG2IlXPQ?list=PL9VBYmZ7H044pI-5hE4LMgubIyiRD4YfH&t=89
