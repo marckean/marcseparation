@@ -30,6 +30,12 @@ I myself personally am not a big sporting person, I don't have an athletic bone 
 - I couldn't even do 3 push-ups, now I can do 60 push-ups in one go
 - I was at 32% body fat in the beginning, I'm now down to 17% body fat
 
+Below is my personal trainer, I'm talking to **Phil Baird** from **Philthy Phitness**:
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/WWx4NHazYj8?playlist=WWx4NHazYj8&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
 It's all about commitment, perseverance and dedication. I now see physical fitness as a fundamental part of life and will never go back to my previous life of no exercise. Doing physical exercise is perfect for physical and mental wellbeing and see it as super important for everyone, not just myself. 
 
 This is also true for my kids and I encourage my kids to play whatever sport that they decide to.
