@@ -20,12 +20,12 @@ Below are some of the things that Julia did when she came to visit in our home b
 
 
 <iframe width="420" height="315"
-    src="https://www.youtube.com/embed/zGeWNbt47RA?Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
+    src="https://www.youtube.com/embed/zGeWNbt47RA?playlist=zGeWNbt47RA&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
 <br>
 
 <iframe width="420" height="315"
-    src="https://www.youtube.com/embed/0MGPuNncgLQ?Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
+    src="https://www.youtube.com/embed/0MGPuNncgLQ?playlist=0MGPuNncgLQ&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 

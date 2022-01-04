@@ -33,7 +33,7 @@ Charlie goes onto say that if you offer a kid something and they haven't eaten f
 In February of 2019, my son was aged 8 and he ate 4 Sushi Rolls (not forced) on his own accord (remember that I myself am 2 meters tall, so technically speaking my kids have catch up and would most likely grow more than their peers, so makes sense that they would consume more food than others in their age group, as they are growing more than other in their age group.):
 
 <iframe width="420" height="315"
-    src="https://www.youtube.com/embed/gmMTAULqgzc?Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
+    src="https://www.youtube.com/embed/gmMTAULqgzc?playlist=gmMTAULqgzc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
 ### Force Feeding
