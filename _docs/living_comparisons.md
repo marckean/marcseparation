@@ -38,6 +38,9 @@ Chloe
     src="https://www.youtube.com/embed/UoELU1q8RO4?playlist=UoELU1q8RO4&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+---------------------------------------------------------------
+---------------------------------------------------------------
+
 ### Kitchen
 
 #### Mother's place
@@ -48,6 +51,9 @@ Chloe
 
 #### Father's place
 
+---------------------------------------------------------------
+---------------------------------------------------------------
+
 ### Master Bedroom
 
 #### Mother's place
@@ -56,6 +62,8 @@ Chloe
     src="https://www.youtube.com/embed/9h2GkBO6-Dg?playlist=9h2GkBO6-Dg&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+---------------------------------------------------------------
+---------------------------------------------------------------
 
 ### Main bathroom
 
@@ -65,6 +73,9 @@ Chloe
     src="https://www.youtube.com/embed/LsX5zrnutXY?playlist=LsX5zrnutXY&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+---------------------------------------------------------------
+---------------------------------------------------------------
+
 ### Ensuite
 
 #### Mother's place
@@ -72,6 +83,9 @@ Chloe
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/MlCafbIy4gw?playlist=MlCafbIy4gw&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
+
+---------------------------------------------------------------
+---------------------------------------------------------------
 
 ### Main Toilet
 
@@ -81,6 +95,9 @@ Chloe
     src="https://www.youtube.com/embed/wztAQZuxJ0o?playlist=wztAQZuxJ0o&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+---------------------------------------------------------------
+---------------------------------------------------------------
+
 ### Lounge
 
 #### Mother's place
@@ -88,6 +105,9 @@ Chloe
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/GKBIrnPEKMo?playlist=GKBIrnPEKMo&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
+
+---------------------------------------------------------------
+---------------------------------------------------------------
 
 ### Laundry
 
@@ -97,6 +117,9 @@ Chloe
     src="https://www.youtube.com/embed/sMs-OCUwgAE?playlist=sMs-OCUwgAE&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+---------------------------------------------------------------
+---------------------------------------------------------------
+
 ### Going Upstairs
 
 #### Mother's place
@@ -104,6 +127,9 @@ Chloe
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/gC_GgPVdlbk?playlist=gC_GgPVdlbk&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
+
+---------------------------------------------------------------
+---------------------------------------------------------------
 
 ### Downstairs spare room
 
