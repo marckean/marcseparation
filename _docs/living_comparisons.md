@@ -28,7 +28,7 @@ toc: true
 ### Kitchen
 
 <iframe width="420" height="315"
-    src="https://www.youtube.com/embed/hixvOH7lxVo?start=31&end=41&Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
+    src="https://www.youtube.com/embed/hixvOH7lxVo?playlist=hixvOH7lxVo&loop=1&start=31&end=41&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
 ### General living
@@ -44,4 +44,5 @@ I take pride on keeping places clean to a good standard. As it was my job to mos
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/fEc_OpXdne8?Version=3&autoplay=1&mute=1&loop=1&showinfo=1&rel=0">
 </iframe>
+
 
