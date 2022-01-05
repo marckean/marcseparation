@@ -28,8 +28,9 @@ main:
 docs:
   - title: "Home"
     url: /
-  - title: "My Initial Comments"
-    url: /my_initial_comments/
+    children:  
+      - title: "My Initial Comments"
+        url: /my_initial_comments/
   - title: Family Report
     children:
       - title: "What I mentioned that was missed"
