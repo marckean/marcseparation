@@ -16,7 +16,7 @@ Alex has mental issues - the below is a summary of real events, which have been 
 
 ### Alex's crap carpark
 
-On December 16, 2020 look how far out from the gutter that she parked on an already narrow street in the middle of school pickup
+On December 16, 2020 look how far out from the gutter that she parked on an already narrow street in the middle of school pickup:
 
 ![](../blobs/alexmentalhealth/alex_crap_carpark.png)
 
