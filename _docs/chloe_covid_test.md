@@ -2,7 +2,10 @@
 title: "Chloe COVID Test, Alex calling Police in front of the kids"
 permalink: /chloe_covid_test/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
-last_modified_at: 2020-07-27
+last_modified_at: 2022-01-06
+redirect_from:
+  - /theme-setup/
+toc: true
 ---
 
 ![Chloe Negative Covid Result](../blobs/chloecovidtest/test_document.jpg)

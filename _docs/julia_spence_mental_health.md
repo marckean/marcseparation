@@ -2,7 +2,10 @@
 title: "Alex's sister, Julia's Mental Health"
 permalink: /julia_spence_mental_health/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
-last_modified_at: 2020-07-27
+last_modified_at: 2022-01-06
+redirect_from:
+  - /theme-setup/
+toc: true
 ---
 
 Julia Spence has always had issues with her mental health. Julia was known to have a problem handling Alcohol, and after only a couple of glasses of wines, she’d be out of control drunk.

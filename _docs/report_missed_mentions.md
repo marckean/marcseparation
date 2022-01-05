@@ -2,7 +2,9 @@
 title: "What I mentioned that was missed"
 permalink: /report_missed_mentions/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2021-06-23T08:15:34-04:00
+last_modified_at: 2022-01-06
+redirect_from:
+  - /theme-setup/
 toc: true
 ---
 Whilst in the session with Dr Ruth Selig, there were several things that I mentioned that were missed in the report.

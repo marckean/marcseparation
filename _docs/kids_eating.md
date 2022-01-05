@@ -2,8 +2,12 @@
 title: "Kids Eating"
 permalink: /kids_eating/
 excerpt: "How the theme is organized and what all of the files are for."
-last_modified_at: 2018-03-20T15:19:22-04:00
+last_modified_at: 2022-01-06
+redirect_from:
+  - /theme-setup/
+toc: true
 ---
+
 ## Statements from the report
 
 ![](../blobs/reportforcefeeding/report_forcefeeding1.png)

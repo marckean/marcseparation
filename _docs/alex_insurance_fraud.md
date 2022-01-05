@@ -2,7 +2,10 @@
 title: "Alex Insurance Fraud"
 permalink: /insurance_fraud/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
-last_modified_at: 2020-07-27
+last_modified_at: 2022-01-06
+redirect_from:
+  - /theme-setup/
+toc: true
 ---
 
 Alex tried to commit what looks like Insurance Fraud to an insurance policy that was in my name. In one phone call, **She** added jewellery cover to the home and contents insurance of the matrimonial home while at the same time lowering the excess amount to $1000. Then a few months later she made a claim for jewellery that she reckons that she lost a local pool which would have had to be worth more than the excess, more than $1000 worth of jewellery.

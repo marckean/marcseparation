@@ -2,7 +2,10 @@
 title: "Issues with Mental Health"
 permalink: /issues_with_mental_health/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
-last_modified_at: 2020-07-27
+last_modified_at: 2022-01-06
+redirect_from:
+  - /theme-setup/
+toc: true
 ---
 
 Alex has mental issues - the below is a summary of real events, which have been documented at the time of the events happening
