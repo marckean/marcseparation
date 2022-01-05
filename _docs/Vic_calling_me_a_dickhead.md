@@ -19,7 +19,9 @@ I said *you know that I’m here for you, if you need to contact me, you call me
 	 
 I said *you know that I’d do anything for you don’t you? Anything at all, I’d even jump off a cliff* (said in tongue & cheek) Chloe said *Yes, but I wouldn’t ask you to do that* Chloe’s voice was warm and not concerned in anyway, as she knew I was being my normal silly Daddy self. 
  
-Mummy (Alex) was in the background and could hear the call
+Mummy (Alex) was in the background and could hear the call.
+
+### Recording of how the children felt
 
 <audio src="../audio/Aunty_Vic_calling_me_a_dickhead.mp3" type="audio/mpeg" controls>
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
