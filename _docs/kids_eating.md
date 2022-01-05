@@ -10,9 +10,17 @@ last_modified_at: 2018-03-20T15:19:22-04:00
 
 - Bec said *He was force-feeding the children but no-one has ever stopped it*
 
+### Report writers comment
+
 ![](../blobs/reportforcefeeding/report_forcefeeding2.png)
 
+### Report writers comment
+
 ![](../blobs/reportforcefeeding/report_forcefeeding3.png)
+
+### Report writers comment
+
+![](../blobs/reportforcefeeding/report_forcefeeding4.png)
 
 ## My rebuttal
 
