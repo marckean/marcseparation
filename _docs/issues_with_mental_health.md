@@ -14,6 +14,12 @@ Alex has mental issues - the below is a summary of real events, which have been 
 	· The house just about burns down
 	· The house is constantly left unlocked
 
+### Alex's crap carpark
+
+On December 16, 2020 look how far out from the gutter that she parked on an already narrow street in the middle of school pickup
+
+![](../blobs/alexmentalhealth/alex_crap_carpark.png)
+
 ### Chloe dropped face first onto a tiled floor
 When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
 
