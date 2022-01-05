@@ -36,6 +36,8 @@ docs:
         url: /report_contradictions/
       - title: "Themes"
         url: /report_themes/
+      - title: "Report Writer Influence"
+        url: /report_writer_influence/
   - title: Father
     children:
       - title: "Dad is Fun"
