@@ -50,7 +50,7 @@ When I have the kids every second Thursday, the kids come with me to my personal
     src="https://www.youtube.com/embed/ioT5nCbTRbQ?playlist=ioT5nCbTRbQ&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-Previous to my separation, just over two years ago I wasn't getting any physical exercise at all and had a different mindset to physical fitness. Now I look at physical fitness totally different - my results over the last 2 years are real results and speak for themselves. This is fact, not someone's non factual opinion in a report.
+Previous to my separation, just over two years ago I wasn't getting any physical exercise at all and had a different mindset to physical fitness. Now I look at physical fitness totally different - my results over the last 2 years are real results and speak for themselves. This is fact, not someone's non-factual opinion in a report.
 
 The statement in the report *He did not apparently take the children to their Saturday morning sport on contact weekends, so they could not consistently participate in team sporting activities* - this is not a fair criticism. The reason for this is that Alex and my separation has been in sync with Covid. We separated pretty much right at the start of Covid and due to this, we've been in lockdown for the bulk of the past two years with sport seasons cancelled over and over. There's been **no** Saturday morning sport on contact weekends. In saying this, the little sport that the kids did manage to play was at all at school on Fridays, where Charlie would play cricket on Fridays and Chloe would play T-Ball on Fridays. 
 
