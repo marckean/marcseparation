@@ -43,7 +43,7 @@ docs:
   - title: Father
     children:
       - title: "Dad is Fun"
-        url: /dad_fun
+        url: /dad_fun/
       - title: "Kids at the Park"
         url: /kids_park/
       - title: "Dad, Kids & Sport"
@@ -68,6 +68,12 @@ docs:
         url: /alex_parenting/
       - title: "Insurance Fraud"
         url: /insurance_fraud/
+  - title: Kids
+    children:
+      - title: "Chloe"
+        url: /chloe/
+      - title: "Charlie"
+        url: /charlie/
   - title: Events
     children:
       - title: "Chloe COVID Test, Alex calling Police in front of the kids"
