@@ -12,6 +12,8 @@ toc: true
 
 The idea of this site is to look at each aspects of the family report (aka. Chapter 15 expert report) and break it down. 
 
+I walked out after my session with Ruth Selig and she looked me in the eye and told me that she's dealt with cases much worse than ours and that I'd have a good chance getting more time with the kids. However, after speaking with Alex's friend Bec (**Rebecca Illis**) things changed. 
+
 There's no **facts** in this report, it's all people's **opinions**. Opinions are not facts. I'll be doing my best on this site to break down each **opinion** against me, then dissolve the **opinion** with a **fact**. 
 
 Main navigation is to the left, and I have grouped each section to make it easier to follow. Within each page, there's a page menu to the right, for more deeper navigation within the page itself. 
