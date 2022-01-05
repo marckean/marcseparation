@@ -23,6 +23,10 @@ toc: true
 
 - Expert's opinion - the below makes this statement of concern irrelevant
 
+![](../blobs/dadkidssport/report_kidssport4.png)
+
+- Below is evidence that I do pay and organise the kids to do sport and physical activities
+
 ## My rebuttal
 
 I myself personally am not a big sporting person, I don't have an athletic bone in my body, this is similar to my daughter Chloe as she takes after me with this gene. I am not a natural at sports and need a lot of work/training, more than others. Hence why I have a personal trainer who I have been seeing 3 times a week for the past 2 years, it's all about staying on top of it, maintenance. It hasn't been easy, however the results after this 2 years speak for themselves: 
@@ -39,6 +43,12 @@ Below is my personal trainer, I'm talking to **Phil Baird** from **Philthy Phitn
 It's all about commitment, perseverance and dedication. I now see physical fitness as a fundamental part of life and will never go back to my previous life of no exercise. Doing physical exercise is perfect for physical and mental wellbeing and see it as super important for everyone, not just myself. 
 
 This is also true for my kids and I encourage my kids to play whatever sport that they decide to.
+
+When I have the kids every second Thursday, the kids come with me to my personal training session on Thursdays. Below is a recent video where my son is getting some stretches from my PT Phil:
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/ioT5nCbTRbQ?playlist=ioT5nCbTRbQ&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
 
 Previous to my separation, just over two years ago I wasn't getting any physical exercise at all and had a different mindset to physical fitness. Now I look at physical fitness totally different - my results over the last 2 years are real results and speak for themselves. This is fact, not someone's non factual opinion in a report.
 
@@ -66,3 +76,11 @@ As evidence, the below are the text's of me organising the coaching with **Henry
 ### Team Sports
 
 I work at Microsoft, Microsoft is totally a team sport. We all work together, support each other and achieve results. 
+
+### Other physical activity while in lockdown
+
+**Beat the lift** was in the early days of Covid lockdown and after my separation. An ingenious idea of mine, a way of getting exercise whilst in complete lockdown in an apartment block. The kids and I would literally race up the fire stairs, burn a few calories at the same time to try and beat the lift. It was all in aid of having a bit of fun while in apartment lockdown  and getting exercise at the same time. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/KD0vs6mdVp0?playlist=KD0vs6mdVp0&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
