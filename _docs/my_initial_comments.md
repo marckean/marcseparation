@@ -41,7 +41,7 @@ If you read this family report, you'll see that about half of it focuses on life
  
 ## About Marc Kean
 
-![Marc](./blobs/Marc-17.jpg)
+![Marc](../blobs/Marc-17.jpg)
 
 Born and raised in QLD to two loving parents. Father a CEO of large enterprises all his life and mostly stay at home mother that did everything around the home. Born June 6, 1976, now working at Microsoft. Bill Gates has Asperger's and Microsoft are setup for all types of people. Being heavily into diversity & inclusion, Microsoft is a great company to work for. With my Asperger's, I am doing great things at Microsoft and supported by my manager and my peers.
 
