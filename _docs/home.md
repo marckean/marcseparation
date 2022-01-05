@@ -20,9 +20,15 @@ There's no **facts** in this report, it's all people's **opinions**. Opinions ar
 
 ### How to use this site
 
-Main navigation is to the left, and I have grouped each section to make it easier to follow. Within each page, there's a page menu to the right, for more deeper navigation within the page itself. 
+Main navigation is to the left, and I have grouped each section to make it easier to follow. 
 
-Start by reading [My Initial Comments](/marcseparation/my_initial_comments/). 
+![](../blobs/navigation_main.png)
+
+Within each page, there's a page menu to the right, for more deeper navigation within the page itself.
+
+![](../blobs/navigation_detailed.png)
+
+I would recommend to start by reading [My Initial Comments](/marcseparation/my_initial_comments/). 
 
 Couple of things that I will highlight to keep in mind across all of this site:
 
