@@ -22,11 +22,11 @@ There's no **facts** in this report, it's all people's **opinions**. Opinions ar
 
 Main navigation is to the left, and I have grouped each section to make it easier to follow. 
 
-![](../blobs/navigation_main.png)
+![](./blobs/navigation_main.png)
 
 Within each page, there's a page menu to the right, for more deeper navigation within the page itself.
 
-![](../blobs/navigation_detailed.png)
+![](./blobs/navigation_detailed.png)
 
 I would recommend to start by reading [My Initial Comments](/marcseparation/my_initial_comments/). 
 
