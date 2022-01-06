@@ -20,7 +20,7 @@ The report writer ignored my request totally.
 
 When I was in the session sitting with the the report writer, Ruth explicitly told me that she would be putting in the report that Julia **committed suicide**. The fact that Julia recently got out of a **mental hospital**, off drugs and back home, people can't cope, Ruth said she's seen this before and it's fairly common. 
 
-But nowhere in the report does it mention:
+But nowhere in the report does it mention the specific terms:
 - "*Mental Hospital*" - it only mentions **hospital** (the word mental is missing)
 - "*Committed suicide*" - just that she had been started on a new medication and died in her sleep
 
