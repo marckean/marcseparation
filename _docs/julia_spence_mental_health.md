@@ -12,7 +12,7 @@ Julia Spence has always had issues with her mental health. Julia was known to ha
 
 ### What the report writer told me in person
 
-Ruth the report writer told me that she had been given powers from the court, that the court gave her power to subpoena information from places. So I did ask Ruth to find out how Julia died and what the family mental health history was. 
+Ruth the report writer told me that she had been given powers from the court, that the court gave her power to subpoena information from places. So I did ask Ruth to find out how Julia died and what the family mental health history was. As you can see here:
 
 ![](../blobs/reportjulia/report_marc_julia1.png)
 
