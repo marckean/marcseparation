@@ -32,7 +32,7 @@ Alex's best friend **Rebecca Illes** made a verbal comment about Julia before Al
 
 Purely for the fact to not attract any attention to the mental health aspect of the sisters, Julia and more specifically, Alex.
 
-Below are some of the things that Julia did when she came to visit in our home before Alex and I separated. 
+Below are some of the things that Julia did when she came to visit the matrimonial home before Alex and I separated. 
 
 - She slammed doors in the house while we were trying to sleep
 - She traced mud through the house, on brand new carpet
