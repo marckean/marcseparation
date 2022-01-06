@@ -52,12 +52,7 @@ Below are some of the things that Julia did when she came to visit the matrimoni
     src="https://www.youtube.com/embed/0MGPuNncgLQ?playlist=0MGPuNncgLQ&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-
-
-### Alex's mental health
-
-We know that Alex, Vic & Julia's father had bipolar died of cancer in 2004
-
+Clearly you can see that Julia is F'ed up and mentally sick in the head. 
 ### Julia was a joke in her family
 
 My kids told me that themselves, cousin Henry and their Uncle (Henry's dad) make up a song about Julia being such a bad egg and with mental issues. The kids were rehearsing it over and over led by Andrew Kyngdon. My kids perform the song below:
