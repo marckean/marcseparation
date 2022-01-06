@@ -8,9 +8,29 @@ redirect_from:
 toc: true
 ---
 
-Julia Spence has always had issues with her mental health. Julia was known to have a problem handling Alcohol, and after only a couple of glasses of wines, she’d be out of control drunk. In the report Alex says that Julia, passed away in March 2021, two days after being discharged from hospital in Adelaide. This was a mental hospital.
+Julia Spence has always had issues with her mental health. Julia was known to have a problem handling Alcohol, and after only a couple of glasses of wines, she’d be out of control drunk. In the report Alex says that her sister Julia passed away in March 2021, two days after being discharged from **hospital** in Adelaide. No mention of the type of hospital, but we know it was a **mental hospital**.
 
-Bec’s comment was “She’s a bad egg” - **Rebecca Illes** is Alex's best friend and spoke to Ruth Selig in the Family Report. 
+### What the report writer told me in person
+
+Ruth the report writer told me that she had been given powers rom the court, that the court gave her power to subpoena information from places. So I did ask Ruth to find out how Julia died and what the family mental health history was. 
+
+![](../blobs/reportjulia/report_marc_julia1.png)
+
+The report writer ignored my request totally.
+
+When I was in the session sitting with the the report writer, Ruth explicitly told me that she would be putting in the report that Julia **committed suicide**. The fact that Julia recently got out of a **mental hospital**, off drugs and back home, people can't cope, Ruth said she's seen this before and it's fairly common. 
+
+But nowhere in the report does it mention:
+- "*Mental Hospital*" - it only mentions **hospital** (the word mental is missing)
+- "*Committed suicide*" - just that she had been started on a new medication and died in her sleep
+
+So basically, the report writer is trying to downplay and sugar coat the mental history of the sister Julia, to deflect this mental attention from Alex. 
+
+Alex's best friend **Rebecca Illes** made a verbal comment about Julia before Alex and I separated, her comment was "*She’s a bad egg*" - **Rebecca Illes** is Alex's best friend and spoke to Ruth Selig in the Family Report and even she downplayed and sugar coated Julia: 
+
+![](../blobs/reportjulia/report_bec_julia1.png)
+
+Purely for the fact to not attract any attention to the mental health aspect of the sisters, Julia and more specifically, Alex.
 
 Below are some of the things that Julia did when she came to visit in our home before Alex and I separated. 
 
@@ -33,13 +53,7 @@ Below are some of the things that Julia did when she came to visit in our home b
 </iframe>
 
 
-### What the report writer told me
 
-When I was in the session sitting with the the report writer, Ruth explicitly told me that she would be putting in the report that Julia committed suicide. The fact that Julia recently got out of a mental hospital, off drugs and back home, people can't cope, Ruth said she's seen this before and it's fairly common. 
-
-But nowhere in the report does it mention:
-- "Mental Hospital" - it only mentions hospital
-- Commited suicide
 ### Alex's mental health
 
 We know that Alex, Vic & Julia's father had bipolar died of cancer in 2004
