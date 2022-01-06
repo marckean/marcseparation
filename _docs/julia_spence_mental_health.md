@@ -8,7 +8,7 @@ redirect_from:
 toc: true
 ---
 
-Julia Spence has always had issues with her mental health. Julia was known to have a problem handling Alcohol, and after only a couple of glasses of wines, she’d be out of control drunk.
+Julia Spence has always had issues with her mental health. Julia was known to have a problem handling Alcohol, and after only a couple of glasses of wines, she’d be out of control drunk. In the report Alex says that Julia, passed away in March 2021, two days after being discharged from hospital in Adelaide. This was a mental hospital.
 
 Bec’s comment was “She’s a bad egg” - **Rebecca Illes** is Alex's best friend and spoke to Ruth Selig in the Family Report. 
 
@@ -32,6 +32,18 @@ Below are some of the things that Julia did when she came to visit in our home b
     src="https://www.youtube.com/embed/0MGPuNncgLQ?playlist=0MGPuNncgLQ&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+
+### What the report writer told me
+
+When I was in the session sitting with the the report writer, Ruth explicitly told me that she would be putting in the report that Julia committed suicide. The fact that Julia recently got out of a mental hospital, off drugs and back home, people can't cope, Ruth said she's seen this before and it's fairly common. 
+
+But nowhere in the report does it mention:
+- "Mental Hospital" - it only mentions hospital
+- Commited suicide
+### Alex's mental health
+
+We know that Alex, Vic & Julia's father had bipolar died of cancer in 2004
+
 ### Julia was a joke in her family
 
 My kids told me that themselves, cousin Henry and their Uncle (Henry's dad) make up a song about Julia being such a bad egg and with mental issues. The kids were rehearsing it over and over led by Andrew Kyngdon. My kids perform the song below:
@@ -39,3 +51,5 @@ My kids told me that themselves, cousin Henry and their Uncle (Henry's dad) make
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/I_K9du6qQ-0?playlist=I_K9du6qQ-0&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
+
+This proves that even within Julia's family, they thought she had issues.
