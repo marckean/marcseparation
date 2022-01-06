@@ -26,7 +26,7 @@ But nowhere in the report does it mention the specific terms:
 
 So basically, the report writer is trying to downplay and sugar coat the mental history of the sister Julia, to deflect this mental attention away from Alex. 
 
-Alex's best friend **Rebecca Illes** made a verbal comment about Julia before Alex and I separated, her comment was "*She’s a bad egg*" - **Rebecca Illes** is Alex's best friend and spoke to Ruth Selig in the Family Report and even she downplayed and sugar coated Julia: 
+Alex's best friend **Rebecca Illes** made a verbal comment about Julia before Alex and I separated, her comment was "*She’s a bad egg*" - **Rebecca Illes** is Alex's best friend and spoke to Ruth Selig in the Family Report and even she downplayed and sugar coated Julia. Here's what Bec said: 
 
 ![](../blobs/reportjulia/report_bec_julia1.png)
 
