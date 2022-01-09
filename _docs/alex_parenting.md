@@ -18,7 +18,7 @@ There are potential dangers for boys this age being out and about on their own. 
  
 If my understanding of the situation is correct from what Charlie has told me, then I am really concerned at Charlie’s wellbeing and development. Your comments would be appreciated and hopefully you can ease my mind.
 
-The comment from my son Charlie below, he is constantly at the park, because it's
+The comment from my son Charlie below, he is constantly at the park, because it's [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can manage. Sometimes no parents/adults are there to supervise and what's more, it there is a parent, it's not biological mother or father. 
 
 ![](../blobs/apexparenting/report_charlie_park.jpg)
 

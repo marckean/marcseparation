@@ -35,6 +35,8 @@ docs:
         url: /my_initial_comments/
   - title: Family Report
     children:
+      - title: "The Report"
+        url: /the_report/
       - title: "What I mentioned that was missed"
         url: /report_missed_mentions/
       - title: "Contradictions"
@@ -89,6 +91,10 @@ docs:
         url: /vic_calling_me_a_dickhead/
       - title: "Breast Feeding Spy Allegation"
         url: /breast_feeding_spy_allegation/
+  - title: Appendix
+    children:
+      - title: "Top 10 list of the benefits of 50/50 custody"
+        url: /5050_custody/
 
 # sidebar navigation list sample
 sidebar-sample:
