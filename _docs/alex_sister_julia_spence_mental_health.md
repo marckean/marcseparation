@@ -12,7 +12,7 @@ The report didn't goo too deep into Alex's sister Julia. This is for good reason
 
 ![](../blobs/reportjulia/report_alex_hiding_julia_cause_of_death.png)
 
-However we know that the [report writer told me that she would be putting in the report that Julia committed suicide.](/julia_spence_mental_health/#what-the-report-writer-told-me-in-person), but even this wasn't mentioned in the report. 
+However we know that the [report writer told me that she would be putting in the report that Julia committed suicide.](/marcseparation/julia_spence_mental_health/#what-the-report-writer-told-me-in-person), but even this wasn't mentioned in the report. 
 
 ![](../blobs/reportjulia/report_marc_julia1.png)
 

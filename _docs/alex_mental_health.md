@@ -12,9 +12,36 @@ Alex is not coping and/or has mental issues or a mix of both. We know that there
 
 However since separation and even with me removed from the picture, in theory Alex should be much happier now and in turn, cope better. However, this is not the case and Alex is still doing idiotic things, making stupid mistakes and mishaps over and over again. Further below are examples of these idiotic things which she did both **before** and **after** we separated. 
 
-As mentioned in the report, 
 
-However we know that the [report writer told me that she would be putting in the report that Julia committed suicide.](/julia_spence_mental_health/#what-the-report-writer-told-me-in-person), but even this wasn't mentioned in the report. 
+
+
+
+However we know that the [report writer told me that she would be putting in the report that Julia committed suicide.](/marcseparation/julia_spence_mental_health/#what-the-report-writer-told-me-in-person), but even this wasn't mentioned in the report. 
+
+
+
+
+
+As mentioned in the report, I told the report writer that it's as if Alex is running on autopilot and lot living in the present moment.
+
+![](../blobs/alexmentalhealth/report_alex_not_there.jpg)
+
+Doing extensive research online, knowing Alex from **before** and **after** we separated, it seems that she may be suffing from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) as though she's disconnected from both her body and the world around. These feelings of detachment are the mind’s way of coping in situations of extreme stress. And stress is exactly what Alex was going through before our separation, and now it may seem that this hasn't changed.
+
+What we know of the current situation:
+- Alex is a single Mum in a large home, much bigger than she needs with her and two kids, [/marcseparation/living conditions](/marcseparation/living_conditions/)
+
+Alex says that she goes to the park each afternoon from 3pm.
+
+![report_contradictions3](../blobs/reportcontradictions/report_contradictions3.png)
+
+Chloe says the opposite. 
+
+![report_contradictions4](../blobs/reportcontradictions/report_contradictions4.png)
+
+It's true that when the kids are with their Mum, they are left alone to play with their friends and/or be looked after by Aunty's or friends as Alex needs to work. It's also true that Charlie goes to the park by himself. 
+
+
 
 Alex has mental issues - the below is a summary of real events, which have been documented at the time of the events happening
 	· Alex runs on auto-pilot, her brain is not engaged on things that she's doing
@@ -29,6 +56,7 @@ On December 16, 2020 look how far out from the gutter that she parked on an alre
 ![](../blobs/alexmentalhealth/alex_crap_carpark.png)
 
 ### Chloe dropped face first onto a tiled floor
+
 When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
 
 
@@ -45,6 +73,12 @@ I ask where abouts is it in the office, she says "it'll be dropped off to the of
 Half way through November I asked Alex to cancel the health cover (under her name) cover for her and the kids. Alex paid this using money out of the joint account $1.9K (after separation) she took our money to pay for her health cover, this included cover for both Alex and the kids (I’m not paying for Alex's cover), I asked this same night if she had reversed the health cover and she said YES! She said the money would be back in my account in a couple of days. Just now (2 weeks later) the money is still not back in the account, however the money has been transferred to a completely separate account in her name - which I don't have access to. 
 
 ### Sealant in the kitchen
+
+#### My statement from the report
+
+![](../blobs/alexmentalhealth/report_silicon.png)
+
+#### More detail
 
 Before Alex and I separated, I noticed water leaking through the kitchen bench through the joins of the granite bench top. So I removed the old sealant, cleaned it, then laid new sealant. After this I also put bright blue tape either side of the wet sealant like a road works warning, that would be easily noticed from the cornet of the eye, so that one would stay well clear of the sealant while it dries. This happened at about 4pm one afternoon. Just after I laid the sealant, I showed Alex how much of a great job it was, a perfect line of sealant, told her not to touch it as it needed to dry, and she acknowledged it.
 
@@ -93,6 +127,12 @@ Alex chose to ignore it.
 When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
 
 ### Ginger the dog on the back balcony
+
+#### My statement from the report
+
+![](../blobs/alexmentalhealth/report_ginger_back_balcony.jpg)
+
+#### More detail
 
 Mum and Dad were here at the time.
 
