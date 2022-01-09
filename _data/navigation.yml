@@ -79,12 +79,14 @@ docs:
         url: /alex_friend_bec/
       - title: "Child Support"
         url: /child_support/
-  - title: Kids
+  - title: Father's side
     children:
       - title: "Chloe"
         url: /chloe/
       - title: "Charlie"
         url: /charlie/
+      - title: "Father's mum"
+        url: /fathers_mum/
   - title: Events
     children:
       - title: "Chloe COVID Test, Alex calling Police in front of the kids"
