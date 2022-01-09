@@ -14,6 +14,8 @@ However since separation and even with me removed from the picture, in theory Al
 
 As mentioned in the report, 
 
+However we know that the [report writer told me that she would be putting in the report that Julia committed suicide.](/julia_spence_mental_health/#what-the-report-writer-told-me-in-person), but even this wasn't mentioned in the report. 
+
 Alex has mental issues - the below is a summary of real events, which have been documented at the time of the events happening
 	· Alex runs on auto-pilot, her brain is not engaged on things that she's doing
 	· Alex runs on subconscious and is not conscious most of the time 

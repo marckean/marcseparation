@@ -73,6 +73,8 @@ docs:
         url: /alex_parenting/
       - title: "Insurance Fraud"
         url: /insurance_fraud/
+      - title: "Alex's friend Bec"
+        url: /alex_friend_bec/
   - title: Kids
     children:
       - title: "Chloe"

@@ -8,11 +8,23 @@ redirect_from:
 toc: true
 ---
 
+The report didn't goo too deep into Alex's sister Julia. This is for good reason, to deflect the attention of Julia's known mental health issues away from Alex. When speaking with the report writer, both Alex and her friend Bec dodged the topic, tippy toed around the subject. As you can see by this in the report, even though an autopsy was performed Alex didn't mention the cause of death: 
+
+![](../blobs/reportjulia/report_alex_hiding_julia_cause_of_death.png)
+
+However we know that the [report writer told me that she would be putting in the report that Julia committed suicide.](/julia_spence_mental_health/#what-the-report-writer-told-me-in-person), but even this wasn't mentioned in the report. 
+
+![](../blobs/reportjulia/report_marc_julia1.png)
+
 Julia Spence has always had issues with her mental health. Julia was known to have a problem handling Alcohol, and after only a couple of glasses of wines, she’d be out of control drunk. In the report Alex says that her sister Julia passed away in March 2021, two days after being discharged from **hospital** in Adelaide. No mention of the type of hospital, but we know it was a **mental hospital**.
+
+Here's what I mentioned in the session when speaking to the report writer:
+
+![](../blobs/reportjulia/report_marc_about_julia.png)
 
 ### What the report writer told me in person
 
-Ruth the report writer told me that she had been given powers from the court, that the court gave her power to subpoena information from places. So I did ask Ruth to find out how Julia died and what the family mental health history was. As you can see here:
+Straight after I brought up the topic about Julia, Ruth the report writer told me that she had been given powers from the court, that the court gave her power to subpoena information from places. So I did ask Ruth to find out how Julia died and what the family mental health history was. As you can see here:
 
 ![](../blobs/reportjulia/report_marc_julia1.png)
 
