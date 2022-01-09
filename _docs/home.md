@@ -14,7 +14,7 @@ The idea of this site is to look at each aspects of the family report (aka. Chap
 
 **Note:** this site is publicly accessible only if you have the direct URL, it is not indexed on any search engine.
 
-Just as I stood up after my session with **Ruth Selig** about to walk out, she looked me in the eye and told me that she's dealt with cases much worse than ours and that I'd have a good chance getting more time with the kids. However, after speaking with Alex's friend Bec (**Rebecca Illis**) things changed. 
+Just as I stood up after my session with **Ruth Selig** about to walk out, she looked me in the eye and told me that she's dealt with cases much worse than ours and that I'd have a good chance getting more time with the kids. However, after speaking with Alex's friend Bec (**Rebecca Illis**) things changed. There's clearly a strong influence from the other people who followed me, e.g. Alex's friend Bec.
 
 There's no **facts** in this report, it's all people's **opinions**. Opinions are not **facts**. Courts deal with **facts**. I'll be doing my best on this site to break down each **opinion** against me, then dissolve the **opinion** with a **fact**. 
 
