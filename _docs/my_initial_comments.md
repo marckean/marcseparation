@@ -18,19 +18,11 @@ If you read this family report, you'll see that about half of it focuses on life
 
 ### Kids are kids, not adults
 
-A tone of information throughout the report refers to what kids want, e.g. asking how much time the kids want to spend with each parent
-
-
-
-
-
+A tone of information throughout [this report](/marcseparation/the_report/) refers to what kids want, e.g. asking how much time the kids want to spend with each parent
 
 ### Single parent
 
-It's hard being a single parent
-
-
-
+[It is seriously hard to be a single parent](https://www.singlemothersurvivalguide.com/single-mom-tough/). You have to deal with all of the parental duties while juggling work, cleaning the house, cooking dinner, having relationships with others, and what happens if you get sick? You certainly cannot call in and take the day off from being a parent!
 
 ### Interactions with kids
 
