@@ -24,7 +24,7 @@ There are potential dangers for boys this age being out and about on their own. 
  
 If my understanding of the situation is correct from what Charlie has told me, then I am really concerned at Charlie’s wellbeing and development. Your comments would be appreciated and hopefully you can ease my mind.
 
-The comment from my son Charlie below:
+The comment from my son Charlie below when asked from the report writer:
 
 ![](../blobs/apexparenting/report_charlie_park.jpg)
 
