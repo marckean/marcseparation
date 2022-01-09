@@ -18,7 +18,7 @@ Just as I stood up after my session with **Ruth Selig** about to walk out, she l
 
 There's no **facts** in this report, it's all people's **opinions**. Opinions are not **facts**. Courts deal with **facts**. I'll be doing my best on this site to break down each and every **opinion** against me, then dissolve the **opinion** with a **fact**. 
 
-There's no denying, the bulk of this report is against me and makes me look like a real monster of a Dad - it's not the case. There's things been ignored, taken out of context, spoken words not recorded clearly from what was mentioned in the room with a clear skewed view based on influence from particular people interviewed. 
+There's no denying, the bulk of this report is against me and makes me look like a real monster of a Dad - I'm not a monster of a Dad. There's things that been ignored, taken out of context, spoken words not recorded clearly from what was mentioned in the room with a clear skewed view based on influence from particular people interviewed. 
 
 It's blatantly obvious that it's war and that both Alex and her friend Bec are completely against me. It's also true that with my Asperger's people read me the wrong way and many people tell me that they can't read me at all, it looks like the report writer Ruth also couldn't read me correctly me, miss interpreted me completely with two non Asperger's people that followed me, it's no wonder this report is totally out of wack. 
 
