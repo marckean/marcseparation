@@ -31,7 +31,7 @@ Charlie always asks me if he can go to the park (by himself) just like at his mo
 1. The park Charlie is referring to is not just around the corner like it is at the mother place, from the place I am at temporarily now, Charlie would have to cross a main road and I am a good extra kilometre away.
 2. I haven't had the opportunity to meet everyone at the park, it's his Mum that organised the park thing every afternoon
 3. I'm not keen on Charlie being at the park by himself, as I've already established, there's not always parents/adults there to supervise
-4. Lastly, as I only have the kids 28.6% of the time, I am reluctant to let them go out as I want to try and maximise my time with then when I have them.
+4. Lastly, as I only have the kids 28.6% of the time, I am reluctant to let them go out as I want to try and maximise my time with then when I have them - note this is hopefully temporary and if I get more time with the kids, then things would totally change and I would let them to places, e.g. sleepovers, as I wouldn't be so eager to maximise my time with them, as I'd have more time.
 
 Instead, I do take the kids to the park quite often, however I go with them myself on the weekends, [as you can see here](/marcseparation/kids_park/#my-rebuttal) below, going to the park with me is not the same as how he goes to the park when with his mother, that's all. 
 
