@@ -28,7 +28,7 @@ The comment from my son Charlie below when asked from the report writer:
 
 ![](../blobs/apexparenting/report_charlie_park.jpg)
 
-Charlie is constantly at the park, because it's [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can manage. Sometimes at the park, Charlie and other parents tell me that no parents/adults are there to supervise and what's more, if there is a parent, it's not biological mother or father of Charlie.
+Charlie is constantly at the park, because it's [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can manage. Charlie and other parents tell me that sometimes at the park no parents/adults are there to supervise and what's more, if there is a parent, it's not biological mother or father of Charlie.
 
 ## Alex is never around
 
