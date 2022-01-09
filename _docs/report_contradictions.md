@@ -14,7 +14,7 @@ Alex was brought up with the belief that she thinks fathers play a very importan
 
 ![report_contradictions1](../blobs/reportcontradictions/report_contradictions1.png)
 
-<br>
+Below Alex is saying three nights a fortnight
 
 ![report_contradictions2](../blobs/reportcontradictions/report_contradictions2.png)
 

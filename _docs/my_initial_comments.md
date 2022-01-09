@@ -16,6 +16,19 @@ This family report does a great job in discrediting me as a father with Asperger
 ### Focus on previous life
 If you read this family report, you'll see that about half of it focuses on life prior to **now**, when Alex and I were still together living in the matrimonial home. For starters, this is irrelevant, as that was over 2 years ago and things have changes significantly, physically, mentally and emotionally. Things are mentioned in the report about how I played a husband role to the mother, however, this is no longer the case as not I am no longer a husband, this is the **past**, and **now** I am playing a sole parent role only. Not only this, the kids are no longer subjected to the constant bickering and arguments that they witnessed their parents practice on a daily basis. It means that the kids time spent with either parent can more of a **rich** experience than in the **past**, as each parent is somewhat happier. 
 
+### Kids are kids, not adults
+
+A tone of information throughout rhe rpeort refers to what kids want, e.g. asking how much time the kids want to spend with each parent
+
+
+
+### Single parent
+
+
+
+
+
+
 ### Time with the kids
 
  The other thing that we need to realise is that ever since Alex and I separated when I moved out of the family home in January 2020, I have only had the kids for 4 nights a fortnight VS what Alex's time is with the kids which is 10 nights a fortnight. We have to remember that this makes a huge difference in judging my time with the kids, as I don't get the same time with the kids that Alex does at **71.4%**, I only get the kids for **28.6%** of the time. 

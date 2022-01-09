@@ -8,7 +8,7 @@ redirect_from:
 toc: true
 ---
 
-The report didn't goo too deep into Alex's sister Julia. This is for good reason, to deflect the attention of Julia's known mental health issues away from Alex. When speaking with the report writer, both Alex and her friend Bec dodged the topic, tippy toed around the subject. As you can see by this in the report, even though an autopsy was performed Alex didn't mention the cause of death: 
+The report didn't go too deep into Alex's sister Julia. This is for good reason, to deflect the attention of Julia's known mental health issues away from Alex. When speaking with the report writer, both Alex and her friend Bec dodged the topic, tippy toed around the subject. As you can see by this in the report, even though an autopsy was performed Alex didn't mention the cause of death: 
 
 ![](../blobs/reportjulia/report_alex_hiding_julia_cause_of_death.png)
 
