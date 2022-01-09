@@ -30,6 +30,21 @@ The comment from my son Charlie below when asked from the report writer:
 
 Charlie is constantly at the park, because it's [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can manage. Charlie and other parents tell me that sometimes at the park no parents/adults are there to supervise and what's more, if there is a parent, it's not biological mother or father of Charlie.
 
+### Dad and doesn't take kids to the park
+
+What Charlie is meaning by this statement below, he means like what happens at his mothers place. Currently he's with his mother 71.4% of the time, so things that happen (rightly or wrongly) with his mother would seem routine to him:
+
+![](../blobs/apexparenting/repoart_charlie_park_dad1.png)
+
+Charlie always asks me if he can go to the park (by himself) just like at his mothers place and of course I say no - for very good reasons. 
+
+1. The park Charlie is referring to is not just around the corner like it is at the mother place, from the place I am at temporarily now, Charlie would have to cross a main road and I am a good extra kilometre away.
+2. I haven't had the opportunity to meet everyone at the park, it's his Mum that organised the park thing every afternoon
+3. I'm not keen on Charlie being at the park by himself, as I've already established, there's not always parents/adults there to supervise
+4. Lastly, as I only have the kids 28.6% of the time, I am reluctant to let them go out as I want to try and maximise my time with then when I have them.
+
+Instead, I do take the kids to the park quite often, however I go with them myself on the weekends, [as you can see here](/marcseparation/kids_park/) below, going to the park with me is not the same as how he goes to the park when with his mother, that's all. 
+
 ## Alex is never around
 
 Alex's way of parenting is from behind the scenes, she takes a step back, just like her own mother **Maree** did (and Maree was also a single mum as well). [Being a single parent is extremely difficult](/marcseparation/my_initial_comments/#single-parent) especially when you have to manage a massive two story house yourself, still working the same part time job as before separation getting paid peanuts of only $500/week and needing to go into the office with minimal working from home allowances.
