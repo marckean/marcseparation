@@ -77,6 +77,8 @@ docs:
         url: /insurance_fraud/
       - title: "Alex's friend Bec"
         url: /alex_friend_bec/
+      - title: "Child Support"
+        url: /child_support/
   - title: Kids
     children:
       - title: "Chloe"

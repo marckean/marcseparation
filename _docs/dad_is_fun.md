@@ -37,7 +37,28 @@ The report contained the following:
 ![](../blobs/lovedad/Report5.png)
 
 - *The father's nature of having less emotional understanding and his own concrete beliefs about what they need, has meant he has cut himself off from them psychologically*
+
+![](../blobs/lovedad/report_rules_event.jpg)
+
+- I checked and confirmed the rules for Uno
+
+![](../blobs/lovedad/report_rules_event2.jpg)
+
+- Advising my kids that they need to follow rules
+
+![](../blobs/lovedad/report_rules1.jpg)
+
+- I produced rules for my kids
+
+![](../blobs/lovedad/report_rules2.jpg)
+
+- The report writer is having a go at me for getting rules out in a game
 ## My rebuttal
+
+### Rules in games
+
+Kids are kids, they only know what they 
+### Fun things I have done with my kids
 
 Since separation, the kids and Dad have done many fun things together.
 

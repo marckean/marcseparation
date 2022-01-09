@@ -18,7 +18,10 @@ If you read this family report, you'll see that about half of it focuses on life
 
 ### Kids are kids, not adults
 
-A tone of information throughout rhe rpeort refers to what kids want, e.g. asking how much time the kids want to spend with each parent
+A tone of information throughout the report refers to what kids want, e.g. asking how much time the kids want to spend with each parent
+
+
+
 
 
 
@@ -28,6 +31,16 @@ It's hard being a single parent
 
 
 
+
+### Interactions with kids
+
+From 259 onwards in the report, where it talks about my interactions with the kids (my two kids Charlie & Chloe). The report writer seemed to have issues with the way that interacted with my kids. On the day in the report writers office, there were several challenges that we faced with the interactions with the kids.
+
+1. There was just one double couch and that was it. We had an hour and we played cards. There was no table free, the only table available was full of papers and books on top of it and the report writer didn't proactivity offer to clear some space for us at all, she could see that i was trying to scramble to find a place to play cards, whereas she just sat there and provided no assistance at all. How are you meant to play cards on a double couch with 3 people? It's very difficult. I did ask the report writer shortly into the game if we could use the table, to which she reluctantly attempted to move things off of the table, but this seemed like an impossible task. So we were stuck on a couch. Wasn't the best environment for cards. We couldn't play on the floor, as I can't sit on the ground, I find it very uncomfortable sitting on the ground. 
+2. It was very hot and stuffy with hardly any air circulating around the room. Wasn't the best conditions.
+3. I was at the tail end of the sessions with the kids, I had the last session with the kids and by this stage the kids were over it, as they just spent 1 hour with their Mum in the same environment and no break in between. 
+
+So keep this in mind when reading the sections from 259 onwards, it wasn't a great example of how the kids and I normally interact in the comfort of our own home. 
 
 ### Time with the kids
 
