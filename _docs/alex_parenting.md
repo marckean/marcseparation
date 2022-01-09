@@ -32,15 +32,15 @@ Charlie is constantly at the park, because it's [it's super hard being a single 
 
 ## Alex is never around
 
-Alex's way of parenting is from behind the scenes, she takes a step back. [Being a single parent is extremely difficult](/marcseparation/my_initial_comments/#single-parent) especially when you have to manage a massive two story house yourself, still working the same part time job as before separation paying $500/week and needing to go into the office with minimal working from home allowances. 
+Alex's way of parenting is from behind the scenes, she takes a step back, just like her own mother **Maree** did (and Maree was also a single mum as well). [Being a single parent is extremely difficult](/marcseparation/my_initial_comments/#single-parent) especially when you have to manage a massive two story house yourself, still working the same part time job as before separation getting paid peanuts of only $500/week and needing to go into the office with minimal working from home allowances.
 
-Seems to me that the way things are going, Alex adopting her own parents parenting style, and is allowing the kids to do **whatever** they choose to.
+Seems to me that the way things are going, Alex is adopting her own mothers parenting style, and is allowing the kids to do **whatever** they choose to. Below, as per the report, Alex's sister Julia was allowed to move out of the home when she was only 14. She had no father in her life as he was dead at the time, but also the mother was totally behind the scenes as Julia was living in a separate residence.
 
 ![](../blobs/apexparenting/report_alexparenting_julia4.png)
 
-This statement is slightly incorrect. It's actually the **maternal** mother that allowed her very own daughter (Julia Spence (now dead)) to move out of her home when she was only 14. It's a bit worrying don't you think, if Alex is allowed to adopt the same parenting style of her mother, look how Julia turned out - she's DEAD!
+This statement is slightly incorrect. It's actually the **maternal** mother **Maree** that allowed her very own daughter (**Julia Spence** (now dead)) to move out of her home when she was only 14. It's a bit worrying don't you think, if Alex is allowed to adopt the same parenting style of her mother, look how Julia turned out - she's now DEAD!
 
-**It can't get any clearer than this**, my daughter Chloe interviewed alone said it herself:
+**It can't get any clearer than this**, Alex is behind the scenes and very much hands off. My daughter Chloe interviewed alone said it herself:
 
 ![](../blobs/apexparenting/report_alexparenting4.png)
 
