@@ -23,13 +23,15 @@ toc: true
     src="https://www.youtube.com/embed/gDr0XIgdk7A?playlist=gDr0XIgdk7A&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-Not safe
+### The house is totally not safe
+
+This is on the top balcony at the back of the house, kids can fall down through this, land on the ground and could seriously injure themselves of whats worse, kill themselves. 
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/Pb2Wtx18Zj8?playlist=Pb2Wtx18Zj8&loop=1&start=81&end=89&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-The current living conditions for the home are totally the opposite to that of the report. 
+The current living conditions for the home are contrary to that of the report. 
 
 - Just like Alex’s mother, there’s crap left all over the place
 - The house is filthy and disgusting 
@@ -45,5 +47,3 @@ This video below, you will notice that about half way through that there's a com
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/1oJeG2IlXPQ?playlist=1oJeG2IlXPQ&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
-
-
