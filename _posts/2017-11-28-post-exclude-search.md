@@ -24,6 +24,17 @@ algolia:
     - index.html
     - index.md
     - excluded-file.html
-    - _posts/2017-11-28-post-exclude-search.md
+    - _posts/*
     - subdirectory/*.html
+    - _recipes/*
+    - _sass/*
+    - _assets/*
+    - _audio/*
+    - _blobs/*
+    - _portfolio/*
+    - _pets/*
+    - _pages/*
+    - _layouts/*
+    - _includes/*
+    - _drafts/*
 ```
