@@ -59,6 +59,8 @@ docs:
         url: /dad_kids_sport/
       - title: "Kids Eating, force-feeding"
         url: /kids_eating/
+      - title: "Dad follows rules"
+        url: /dad_follows_rules/
   - title: Mother
     children:
       - title: "Living Conditions"
