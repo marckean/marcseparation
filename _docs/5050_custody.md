@@ -93,7 +93,7 @@ Unlike sole custody with visitation, 50/50 custody encourages healthy competitio
 
 ## 6 Shared Parenting Improves Living Standards
 
-![](../blobs/5050custody/father-father-son-playing-video-game.jpg)
+![](../blobs/5050custody/father-son-playing-video-game.jpg)
 
 Children who live in a shared care arrangement, especially 50:50 joint custody, enjoy higher living standards because of it. Poverty risks are lessened since children live across two households. If living standards are low in one home, at least a child might make up for it in the other.
 
@@ -123,7 +123,7 @@ It is no wonder that children have better overall living standards with 50:50 cu
 
 ## 8 Fathers are Happier
 
-![](../blobs/5050custody/father-father-feeding-baby.png)
+![](../blobs/5050custody/father-feeding-baby.png)
 
 For the many divorced and separated Dads who want to be with their children often, co-parenting is a blessing. You are able to maintain close relationships with the little person or people you love most in the world. And you are able to fulfill a role that gives life meaning and purpose: being an involved father with your child or children.
 
