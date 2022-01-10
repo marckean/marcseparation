@@ -45,7 +45,9 @@ The ill-effects of father absence have been well documented. According to **Dr E
 - Delinquency, youth crime and teenage pregnancy
 - Drug and alcohol abuse.
 
-Just not knowing a biological parent seems to cause problems for children, creating an inner void that is not easily filled by others. And the quality of the relationship matters too. *Children who feel a closeness and warmth with their father are twice as likely to enter college, 75 percent less likely to have a child in their teen years, 80 percent less likely to be incarcerated and half as likely to show various signs of depression*.… Furstenberg and Harris
+Just not knowing a biological parent seems to cause problems for children, creating an inner void that is not easily filled by others. And the quality of the relationship matters too. 
+
+> *Children who feel a closeness and warmth with their father are twice as likely to enter college, 75 percent less likely to have a child in their teen years, 80 percent less likely to be incarcerated and half as likely to show various signs of depression*.… Furstenberg and Harris
 
 Frequent, lengthy contact with both parents gives a child the opportunity to form two essential relationships. For children whose parents live apart, a high level of contact is best achieved by 50:50 custody and shared parenting.
 
@@ -57,7 +59,7 @@ A further benefit of 50:50 custody is to boost the quality of time that children
 
 When parents and children catch up after a break, they might: share some hugs, talk about what has been happening in each other's lives, do an activity they all like or enjoy a meal together.
 
-*50 50 custody is the ultimate form of shared parenting. The two parents are treated as equals and fully share responsibilities for raising children*.… Adam Singleton
+> *50 50 custody is the ultimate form of shared parenting. The two parents are treated as equals and fully share responsibilities for raising children*.… Adam Singleton
 
 Co-parenting can improve the quality of parent-child relationships. You tend to avoid bad habits and routines, such as slumping in front of a TV after work or school and not communicating.
 
@@ -99,7 +101,7 @@ For example, in the poorer household, a child might spend their time reading, wa
 
 Shared parenting also improves living standards by allowing a child to spend more time with the higher-earning parent. Income statistics for Australia show that recipients of child support earn only about half of what payers do. And payers usually have less than 14% physical custody. Where kids see paying parents more, the children are materially better off.
 
-“The majority (65 per cent) of child support payers have below 14 per cent care of their children. The median income of payers was $47,985. The median income of child support payees at June 2019 was $23,953”.… Department of Social Services submission to Australia's Family Law Inquiry
+> *The majority (65 per cent) of child support payers have below 14 per cent care of their children. The median income of payers was $47,985. The median income of child support payees at June 2019 was $23,953*.… Department of Social Services submission to Australia's Family Law Inquiry
 
 One reason why child support recipients have low incomes is the amount of time they spend looking after children. In contrast, 50/50 custody allows both parents to participate in the workforce and earn a good income.
 
@@ -113,7 +115,7 @@ When both parents are looking after kids, they routinely pay for stuff without a
 
 Contrast this way of managing costs with sole custody, where child support is relied on. One parent has to hand over money for things he or she may not want to purchase. The non-custodial parent doesn't even get the pleasure of seeing their child benefit from the spending.
 
-*The child support system weakens the child/father bond by separating the act of love from the act of providing*… Kathryn Edin
+> *The child support system weakens the child/father bond by separating the act of love from the act of providing*… Kathryn Edin
 
 Child support is an unsatisfactory way of handling spending. Payers are often resentful. Recipients are encouraged to stay dependent on their ex. Parents who may want little to do with one another are forced into an unhealthy financial relationship.
 
@@ -125,7 +127,7 @@ It is no wonder that children have better overall living standards with 50:50 cu
 
 For the many divorced and separated Dads who want to be with their children often, co-parenting is a blessing. You are able to maintain close relationships with the little person or people you love most in the world. And you are able to fulfill a role that gives life meaning and purpose: being an involved father with your child or children.
 
-*Fathers who lose custody were consistently found to be at greater risk for chronic health conditions, psychological impairment, and death. Of particular concern is the suicide risk of divorced men who become legally disenfranchised from their children*… Edward E Bartlett
+> *Fathers who lose custody were consistently found to be at greater risk for chronic health conditions, psychological impairment, and death. Of particular concern is the suicide risk of divorced men who become legally disenfranchised from their children*… Edward E Bartlett
 
 Fathers do not enjoy handing over child support for the raising of their children. What they usually want is to be with their sons and daughters. The best way for that to happen when parents live apart is 50:50 custody or another form of shared parenting.
 
@@ -141,9 +143,9 @@ Thanks to personal bloggers, we know that mothers appreciate the advantages of s
 
 Mothers who co-parent get more time to themselves. That means they are more refreshed, eager and prepared each time their parenting duties begin again. They should be happier and are better able to provide quality parenting.
 
-"Those hours are a precious commodity I fully utilize to nurture friendships, date, work, exercise and relax. When the kids come home Sunday evening, we are all so happy to see each other and I can feel in my whole body how much more energy I have for them."… Emma Johnson
+> *Those hours are a precious commodity I fully utilize to nurture friendships, date, work, exercise and relax. When the kids come home Sunday evening, we are all so happy to see each other and I can feel in my whole body how much more energy I have for them*.… Emma Johnson
 
-*Before you ask the court to review your case one more time (in the hopes of winning sole custody), consider the unexpected benefits you can expect to enjoy once you all get used to the joint custody arrangement*.… Jennifer Wolf
+> *Before you ask the court to review your case one more time (in the hopes of winning sole custody), consider the unexpected benefits you can expect to enjoy once you all get used to the joint custody arrangement*.… Jennifer Wolf
 
 Co-parenting mothers can invest time in themselves for the benefit of their children. They are able to work on their physical and mental health, do online courses, work more hours to advance their career, and do things like date and build friendships. By sharing care of their children, mothers can become stronger parents and better role models.
 
