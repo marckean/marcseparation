@@ -12,7 +12,7 @@ toc: true
 
 ## Back balcony
 
-Kids can fall down through this and could kill themselves
+This is on the top balcony at the back of the house, kids can fall down through this, land on the ground and could seriously injure themselves of whats worse, kill themselves. 
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/Pb2Wtx18Zj8?playlist=Pb2Wtx18Zj8&loop=1&start=81&end=89&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
