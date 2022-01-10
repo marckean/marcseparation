@@ -24,6 +24,16 @@ As per [this section](/marcseparation/alex_parenting/#alex-is-never-around). The
 
 Julia had a real drinking problem and was a chain smoker amongst having bipolar disorder, not being able to hold down a job and as Bec said, she's a "*bad egg*". 
 
-Leaving the home at 14, no father in her life (as he was dead at the time), the mother was behind the scenes as Julia lived in share accommodation with Alex and Alex's gay friend Kristan. Julia lacked the support and guidance needed to develop into a decent woman to have somewhat of a chance of a normal life, but this is a classic case of where 
+Leaving the home at 14, no father in her life (as he was dead at the time), the mother was behind the scenes as Julia lived in share accommodation with Alex and Alex's gay friend Kristan. Julia lacked the support and guidance needed to develop into a decent woman to have somewhat of a chance of a normal life. 
 
 ![](../blobs/reportjulia/julia_drunk1.png)
+
+This is a classic text book case the directly reflects the reports from what the experts say that kids turn out best with shared custody between both Mother and Father.
+
+The highlights from the expert studies:
+
+- children with a shared parenting arrangement have better physical, mental, social and academic outcomes compared to children in a primary parenting arrangement
+- children with shared parenting had better outcomes for physical health, psychological well-being, moods and emotions, self-perception, autonomy, parental relations, material outcomes, peer relations, school satisfaction and social acceptance
+- children in a shared parenting arrangement had better outcomes on all measured variables for well-being, most notably for their family relationships, physical health, adolescent behaviour and mental health
+
+This information came from other pages on this exact same site. For more details, see [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/), [Platform for European Fathers (PEF)](/marcseparation/platform_for_european_fathers/) and [Scientific research for shared parenting](/marcseparation/my_initial_comments/#scientific-research-for-shared-parenting). 
