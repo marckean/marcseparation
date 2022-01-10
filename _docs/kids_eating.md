@@ -42,11 +42,29 @@ Example, Charlie thought he was getting hard and rocky pudding so he said he was
 
 Charlie goes onto say that if you offer a kid something and they haven't eaten for 2-3 hours and they say that they're full, it just simply means that they don't feel like it, but if you offered them something better, then they would say that they're not full. But, if they ate 20 mins ago, then they really are full (what adults call full, not what kids call full). 
 
+### Charlie eating four (4) sushi rolls in one siting
+
 In February of 2019, my son was aged 8 and he ate 4 Sushi Rolls (not forced) on his own accord (remember that I myself am 2 meters tall, so technically speaking my kids have catch up and would most likely grow more than their peers, so makes sense that they would consume more food than others in their age group, as they are growing more than other in their age group.):
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/gmMTAULqgzc?playlist=gmMTAULqgzc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
+
+### Charlie eating five (5) sushi rolls in one siting
+
+Then very recently, we can see that Charlie can also eat 5 sushi rolls in the one sitting - without being force-fed. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/gmMTAULqgzc?playlist=gmMTAULqgzc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+Seriously, my kid is my kid don't forget and he has a massive appetite as he has a **lot** of growing to do.
+
+#### Aunty Vic starves the kids
+
+As Aunty Vic looks after the kids very often, as Alex's way of parenting is hands off and relies on others to look after the kids. The kids (both Charlie & Chloe) constantly complain that they hardly get fed much food at all. 
+
+I heard several times that Aunty Vic starves the kids by giving them one egg & lettuce sandwich to share between both of them, so half each for lunch. Other times Aunty Vic buys them a **McDonalds** cheese burger sometimes with no meat patty and no cheese (just the pickle) as it's cheap, around 30c. 
 
 ### Force Feeding
 
