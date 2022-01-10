@@ -57,7 +57,7 @@ search_full_content      : true # true, false (default)
 search_provider          : algolia # lunr (default), algolia
 algolia:
   application_id         : NQW3GL6IIX # YOUR_APPLICATION_ID
-  index_name             : minimal_mistakes # YOUR_INDEX_NAME
+  index_name             : marcseparation # YOUR_INDEX_NAME
   search_only_api_key    : 50222208e3337adde46a577756c695c3 # YOUR_SEARCH_ONLY_API_KEY
   powered_by             : true # true (default), false
   files_to_exclude:
