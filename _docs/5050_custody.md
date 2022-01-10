@@ -8,7 +8,7 @@ redirect_from:
 toc: true
 ---
 
-Top 10 list of the benefits of 50/50 custody – source https://timtab.com/50-50-custody-benefits-why-shared-parenting-important/ 
+Top 10 list of the benefits of 50/50 custody – source [https://timtab.com/50-50-custody-benefits-why-shared-parenting-important/](https://timtab.com/50-50-custody-benefits-why-shared-parenting-important/) 
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/uW9gvJU-XK8?playlist=uW9gvJU-XK8&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
