@@ -22,6 +22,8 @@ PEF is a rapidly expanding platform. Based on the premisses of our Founding Stat
 
 Taken from [https://europeanfathers.wordpress.com/2013/10/04/36/](https://europeanfathers.wordpress.com/2013/10/04/36/)
 
+![](../blobs/pef/pef1.png)
+
 ### 1. Introduction
 
 Good morning. First of all I would like to thank you for inviting me to this conference on shared and equal parenting rights in Lithuania.
@@ -30,9 +32,9 @@ My name is **Peter Tromp**. I am a child and educational psychologist from the N
 
 The Platform for European Fathers (PEF) was formally founded on June 27, 2011 to represent father organisations and fathers interests at the European policy levels in Brussels. Its founding meeting was in the buildings of the European Parliament and coincided with the conference organised in and by the European Parliament on the policy issue of a European minimum Paternity Leave of two weeks. PEF now has 24 member organisations from 15 different EU countries and is rapidly growing.
 
-And the Dutch Father Knowledge Centre (Vader Kennis Centrum) was founded in 1988. It champions the cause of involved fatherhood and equal parenting and keeping both parents actively involved in children’s lives, also after divorce and separation.  It works with policy makers, scientists, campaign groups, lobbyists and reformers and aims to make knowledge and information available about the role, the contributions and the efforts men and fathers are making in children’s lives, particularly in raising and educating (their) children. Whether that is in the family – both before and after divorce – or in any of the other living environments where children grow up, like childcare and education.  The aim is to have these contributions and efforts of fathers and men in caring for and educating children better acknowledged and supported on the social policy level.
+And the Dutch Father Knowledge Centre (Vader Kennis Centrum) was founded in 1988. It champions the cause of involved fatherhood and **equal parenting** and **keeping both parents actively involved in children’s lives**, also after divorce and separation.  It works with policy makers, scientists, campaign groups, lobbyists and reformers and aims to make knowledge and information available about the role, the contributions and the efforts men and fathers are making in children’s lives, particularly in raising and educating (their) children. Whether that is in the family – both before and after divorce – or in any of the other living environments where children grow up, like childcare and education.  The aim is to have these contributions and efforts of fathers and men in caring for and educating children better acknowledged and supported on the social policy level.
 
-In my presentation of today I would like to speak to you about some of the benefits of post-divorce ‘shared parenting’ arrangements for children [2]. At the end of my presentation I would like to conclude with summary introductions to the situation of – and developments in – shared parenting in the European Union.
+In my presentation of today I would like to speak to you about some of the benefits of post-divorce ‘**shared parenting**’ arrangements for children. At the end of my presentation I would like to conclude with summary introductions to the situation of – and developments in – shared parenting in the European Union.
 
 ### 2. Some definition issues in post-divorce shared and equal parenting
 

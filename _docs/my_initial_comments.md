@@ -13,8 +13,10 @@ toc: true
 ## My summary of the report
 
 This family report does a great job in discrediting me as a father with Asperger's syndrome. Asperger's syndrome is very common and very highly successful people have Asperger's syndrome, e.g. Bill Gates & Elon Musk. Likewise, I shouldn't be penalised as a father just because I **may** have Asperger's syndrome. 
-### Focus on previous life
-If you read this family report, you'll see that about half of it focuses on life prior to **now**, when Alex and I were still together living in the matrimonial home. For starters, this is irrelevant, as that was over 2 years ago and things have changes significantly, physically, mentally and emotionally. Things are mentioned in the report about how I played a husband role to the mother, however, this is no longer the case as not I am no longer a husband, this is the **past**, and **now** I am playing a sole parent role only. Not only this, the kids are no longer subjected to the constant bickering and arguments that they witnessed their parents practice on a daily basis. It means that the kids time spent with either parent can more of a **rich** experience than in the **past**, as each parent is somewhat happier. 
+
+### Report's focus on previous life
+
+Previous life being more than 2 years ago, prior to separation with my Ex (Alex). If you read this family report, you'll see that about half of it focuses on life prior to **now**, when Alex and I were still together living in the matrimonial home. For starters, this is irrelevant, as that was over 2 years ago and things have changes significantly, physically, mentally and emotionally. Things are mentioned in the report about how I played a husband role to the mother, however, this is no longer the case as not I am no longer a husband, this is the **past**, and **now** I am playing a sole parent role only. Not only this, the kids are no longer subjected to the constant bickering and arguments that they witnessed their parents practice on a daily basis. It means that the kids time spent with either parent can more of a **rich** experience than in the **past**, as each parent is somewhat happier. 
 
 ### Kids are kids, not adults
 
@@ -24,7 +26,7 @@ A tone of information throughout [this report](/marcseparation/the_report/) refe
 
 [It is seriously hard to be a single parent](https://www.singlemothersurvivalguide.com/single-mom-tough/). You have to deal with all of the parental duties while juggling work, cleaning the house, cooking dinner, having relationships with others, and what happens if you get sick? You certainly cannot call in and take the day off from being a parent!
 
-### Interactions with kids
+### Interactions with kids in front of the report writer
 
 From 259 onwards in the report, where it talks about my interactions with the kids (my two kids Charlie & Chloe). The report writer seemed to have issues with the way that interacted with my kids. On the day in the report writers office, there were several challenges that we faced with the interactions with the kids.
 
@@ -32,9 +34,9 @@ From 259 onwards in the report, where it talks about my interactions with the ki
 2. It was very hot and stuffy with hardly any air circulating around the room. Wasn't the best conditions.
 3. I was at the tail end of the sessions with the kids, I had the last session with the kids and by this stage the kids were over it, as they just spent 1 hour with their Mum in the same environment and no break in between. 
 
-So keep this in mind when reading the sections from 259 onwards, it wasn't a great example of how the kids and I normally interact in the comfort of our own home. 
+So keep this in mind when reading the sections from **259** onwards, it wasn't a great example of how the kids and I normally interact in the comfort of our own home. 
 
-### Time with the kids
+### Unfairly judged based on current time with the kids
 
  The other thing that we need to realise is that ever since Alex and I separated when I moved out of the family home in January 2020, I have only had the kids for 4 nights a fortnight VS what Alex's time is with the kids which is 10 nights a fortnight. We have to remember that this makes a huge difference in judging my time with the kids, as I don't get the same time with the kids that Alex does at **71.4%**, I only get the kids for **28.6%** of the time. 
  
@@ -87,3 +89,13 @@ Despite these challenges, there are some important ways in which being on the au
 - **Intense, passionate interests**. It is important for children to have models of adults pursuing their interests and passions. While I did not share all my dad’s interests, there are some activities, like fishing and skeet shooting, that we enjoyed together. In fact, these are some of the happiest memories I have with my dad. And, it is cool that they fall outside traditional gender expectations.
 - **Exposure to neurodiversity and acceptance of people who are different**. Research suggests that some siblings of people with ASD benefit from these unique relationships, and more is needed to know if this is true for children of people with ASD too. 
 
+
+## Scientific research for shared parenting
+
+The following [taken from Wikipedia](https://en.wikipedia.org/wiki/Shared_parenting#Scientific_research):
+
+Epidemiological studies on the effect of shared parenting on children has been conducted using both cross-sectional and longitudinal study designs. Their conclusions are that **children with a shared parenting arrangement have better physical, mental, social and academic outcomes** compared to children in a primary parenting arrangement. These finding holds for all age groups, whether the parents have an amicable or high-conflict relationship, and after adjusting for socio-economic variables.
+
+With its early adoption of shared parenting and excellent health data, the largest studies on shared parenting have been conducted in Sweden. In a large cross-sectional study comparing over 50,000 children, ages 12 and 15, living in either a shared or sole custody arrangement, **Dr. Malin Bergström** found that **children with shared parenting had better outcomes for physical health, psychological well-being, moods and emotions, self-perception, autonomy, parental relations, material outcomes, peer relations, school satisfaction and social acceptance**. Using data from the same cross-sectional survey, Bergström did a follow-up study focusing on psychosomatic problems of concentration, sleeping, headaches, stomach aches, tenseness, lack of appetite, sadness and dizziness. They found that **both boys and girls did better living in a shared parenting versus sole custody arrangement**. Both studies adjusted for selected socio-economic variables.
+
+A review of 60 quantitative research studies found that in 34 of the studies, **children in a shared parenting arrangement had better outcomes on all measured variables for well-being, most notably for their family relationships, physical health, adolescent behavior and mental health**. In 14 studies, they had better or equal outcomes on all measures, in 6 studies that had equal outcomes on all measures, and in 6 studies that had worse outcomes on one measure and equal or better outcomes on the remaining measures. The results were similar for the subset of studies that adjusted for socio-economic variables and the level of conflict between parents. The variable with the smallest difference was academic achievement, for which only 3 out 10 studies showed an advantage for shared parenting.[5] Studies indicate that children fare better in joint custody arrangements, or where they have good access to both parents, as compared to sole custody arrangements.
