@@ -24,6 +24,8 @@ main:
     url: /
   - title: "My Initial Comments"
     url: /my_initial_comments/
+  - title: "Serious Risks"
+    url: /serious_risks/
 
 
 # documentation links
