@@ -18,5 +18,10 @@ Kids can fall down through this and could kill themselves
     src="https://www.youtube.com/embed/Pb2Wtx18Zj8?playlist=Pb2Wtx18Zj8&loop=1&start=81&end=89&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-##
+## Alex is hands off parenting
 
+As per [this section](/marcseparation/alex_parenting/#alex-is-never-around). There's a great chance the Alex will follow the same parenting style as her own mother. We can see how this turned out for Alex's sister Julia, she killed herself.
+
+Julia had a real drinking problem and was a chain smoker amongst having bipolar disorder, not being able to hold down a job
+
+![](../blobs/reportjulia/julia_drunk1.png)
