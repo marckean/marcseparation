@@ -99,6 +99,8 @@ docs:
     children:
       - title: "Top 10 list of the benefits of 50/50 custody"
         url: /5050_custody/
+      - title: "Platform for European Fathers (PEF)"
+        url: /platform_for_european_fathers/
 
 # sidebar navigation list sample
 sidebar-sample:
