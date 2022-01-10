@@ -10,10 +10,6 @@ toc: true
 
 [//]: # (margin:top right bottom left)
 
-<iframe width="420" height="315"
-    src="https://www.youtube.com/embed/H4vi8ATgJgw?playlist=H4vi8ATgJgw&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
-</iframe>
-
 ## Statements from the report
 
 The report contained the following:
@@ -46,7 +42,7 @@ The report writer having a go at me for reading the rules for games, this is tot
 
 It's ok for others to read rules. My brother in law (my sisters husband) always refers to rules when playing games so there's no arguments, fights or disagreements. It's not OK for me? [Bearing in mind the conditions of the room when I interacted with the kids](/my_initial_comments/#interactions-with-kids-in-front-of-the-report-writer), it wasn't the best environment for playing card games at all.  
 
-Reading rules is not a constant thing, it's only needed generally once when someone is unsure of the game and it makes sure that it sets good habits for kids, so they don't grow up playing games the wrong way with the risk that they end up in an argument, fight or disagreement with their peers when playing games. 
+Reading rules is not a constant thing, it's only needed generally once when someone is unsure of the game and it makes sure that it sets good habits for kids then on, so they don't grow up playing games the wrong way with the risk that they end up in an argument, fight or disagreement with their peers when playing games. 
 
 On the subject of games (e.g. Bobs), having fun and the kids getting really involved in the game. Here's a video of both **Charlie** & **Chloe**, they are both right into the game of **Bobs**. I ask them how to play, and as their Poppy read the **rules** to them, they were **happy** to explain how to play the game while they themselves played the game itself:
 
