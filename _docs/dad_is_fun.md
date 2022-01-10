@@ -57,7 +57,18 @@ The report contained the following:
 
 ### Rules in games
 
-Kids are kids, they only know what they 
+The report writer having a go at me for reading the rules for games, this is totally absurd. This video here is taken of my own Dad (Poppy to my kids) and he is reading rules for a game called **Bobs**. I then go onto ask Charlie is he is happy with the game, to which he replies, *yes*:
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/SxiYoejo6qs?playlist=SxiYoejo6qs&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+On the subject of games (e.g. Bobs), having fun and the kids getting really involved in the game. Here's a video of both **Charlie** & **Chloe**, they are both right into the game of **Bobs**. I ask them how to play, and as their Poppy read the **rules** to them, they were **happy** to explain how to play the game while they themselves played the game itself:
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/lknoiBWW9xA?playlist=lknoiBWW9xA&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
 ### Fun things I have done with my kids
 
 Since separation, the kids and Dad have done many fun things together.
@@ -92,3 +103,11 @@ Since separation, the kids and Dad have done many fun things together.
 | ![](../blobs/lovedad/Picture43.png) | ![](../blobs/lovedad/Picture44.png) |
 | ![](../blobs/lovedad/Picture45.png) | ![](../blobs/lovedad/Picture46.png) |
 | ![](../blobs/lovedad/Picture47.png) | ![](../blobs/lovedad/Picture48.png) |
+
+### BIG4 Ingenia holiday park
+
+Other fun things I do with the kids, I made a fun tourist video with the kids when we stayed recently at the BIG4 Ingenia Holiday park in Soldiers Point NSW, near Port Stephens, just north east of Newcastle. Kids had a whole bunch of fun making it. See the video here:
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/vvz1-OsgYB8?playlist=vvz1-OsgYB8&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
