@@ -16,13 +16,21 @@ Both individuals are very strange
 - Victoria at a 5 star hotel swimming pool, Henry out of control
 - Andrew's warped views of Japanese cars
 
+## Aunty Vic tells the kids court things
+
+The recording of Charlie telling me that Aunty Vic discusses court things (not true) in front of the kids, also calls the Police about me in front of my very own kids:
+
+<audio src="../audio/20220110_Aunty_Vic_talking_court_things_to_charlie.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
 ## Andrew and Japanese cars
 
 In the report, I said:
 
 ![](../blobs/alexsistervictoria/report_andrewjapanesecars.png)
 
-Just because he got a sore back by driving one particular Japanese car, now Andrew doesn't like all Japanese cars.
+Just because he got a sore back by driving one particular Japanese car, now Andrew doesn't like all Japanese cars. So stupid. 
 
 ## Victoria oblivious to kids
 
