@@ -14,6 +14,8 @@ toc: true
 
 ### The rights of the child
 
+As per [Convention on the Rights of the Child](https://www.unicef.org.au/our-work/information-for-children/un-convention-on-the-rights-of-the-child):
+
 Children should not be separated from their parents unless it is for their own good. For example, if a parent is mistreating or neglecting
 a child. Children whose parents have separated have the right to stay in contact with both parents, unless this might harm the child.
 
