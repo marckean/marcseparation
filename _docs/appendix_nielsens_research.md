@@ -18,6 +18,6 @@ Nielsen’s research debunks many popular, but false and damaging, beliefs about
   
 - Infants, toddlers and preschoolers have better outcomes when they live in a shared parenting family.
   
-- Infants and toddlers who spend frequent overnight time with their dads are not more irritable, more poorly behaved, or more insecurely attached to their mothers than those with little to no overnight fathering time.
+- Infants and toddlers who spent frequent overnight time with their dads are not more irritable, more poorly behaved, or more insecurely attached to their mothers than those with little to no overnight fathering time.
 
 **Note**: Currently, I only get the kids for 28.6% of the time.
