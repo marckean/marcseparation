@@ -104,9 +104,11 @@ docs:
   - title: Appendix
     children:
       - title: "Top 10 list of the benefits of 50/50 custody"
-        url: /5050_custody/
+        url: /appendix_5050_custody/
       - title: "Platform for European Fathers (PEF)"
-        url: /platform_for_european_fathers/
+        url: /appendix_platform_for_european_fathers/
+      - title: "Nielsen’s Research: Divorce & Shared Parenting"
+        url: /appendix_nielsens_research/
 
 # sidebar navigation list sample
 sidebar-sample:
