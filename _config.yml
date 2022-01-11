@@ -52,9 +52,11 @@ reCaptcha:
 atom_feed:
   path                   : # blank (default) uses feed.xml
 
+# Search using GitHub pages as documented here https://community.algolia.com/jekyll-algolia/github-pages.html
+
 search                   : true # true, false (default)
 search_full_content      : true # true, false (default)
-search_provider          : algolia # lunr (default), algolia
+search_provider          : lunr # lunr (default), algolia
 algolia:
   application_id         : NQW3GL6IIX # YOUR_APPLICATION_ID
   index_name             : marcseparation # YOUR_INDEX_NAME
