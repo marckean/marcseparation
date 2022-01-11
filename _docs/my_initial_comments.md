@@ -100,4 +100,7 @@ With its early adoption of shared parenting and excellent health data, the large
 
 A review of 60 quantitative research studies found that in 34 of the studies, **children in a shared parenting arrangement had better outcomes on all measured variables for well-being, most notably for their family relationships, physical health, adolescent behaviour and mental health**. In 14 studies, they had better or equal outcomes on all measures, in 6 studies that had equal outcomes on all measures, and in 6 studies that had worse outcomes on one measure and equal or better outcomes on the remaining measures. The results were similar for the subset of studies that adjusted for socio-economic variables and the level of conflict between parents. The variable with the smallest difference was academic achievement, for which only 3 out 10 studies showed an advantage for shared parenting.[5] Studies indicate that children fare better in joint custody arrangements, or where they have good access to both parents, as compared to sole custody arrangements.
 
-For more details, see the [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/) and [Platform for European Fathers (PEF)](/marcseparation/platform_for_european_fathers/) on this site in the appendix section. 
+For more details, see:
+- [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/)
+- [Platform for European Fathers (PEF)](/marcseparation/platform_for_european_fathers/)
+- [Nielsen’s Research: Divorce & Shared Parenting](/marcseparation/appendix_nielsens_research/)

@@ -36,4 +36,8 @@ The highlights from the expert studies:
 - children with shared parenting had better outcomes for physical health, psychological well-being, moods and emotions, self-perception, autonomy, parental relations, material outcomes, peer relations, school satisfaction and social acceptance
 - children in a shared parenting arrangement had better outcomes on all measured variables for well-being, most notably for their family relationships, physical health, adolescent behaviour and mental health
 
-This information came from other pages on this exact same site. For more details, see [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/), [Platform for European Fathers (PEF)](/marcseparation/platform_for_european_fathers/) and [Scientific research for shared parenting](/marcseparation/my_initial_comments/#scientific-research-for-shared-parenting). 
+This information came from other pages on this exact same site. For more details, see:
+- [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/)
+- [Platform for European Fathers (PEF)](/marcseparation/platform_for_european_fathers/)
+- [Scientific research for shared parenting](/marcseparation/my_initial_comments/#scientific-research-for-shared-parenting)
+- [Nielsen’s Research: Divorce & Shared Parenting](/marcseparation/appendix_nielsens_research/)
