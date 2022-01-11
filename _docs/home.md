@@ -37,7 +37,7 @@ The idea of this site is to look at each aspects of the [family report](/marcsep
 
 Just as I stood up after my session with **Ruth Selig** about to walk out, she looked me in the eye and told me that she's dealt with cases much worse than ours and that I'd have a good chance getting more time with the kids. However, after speaking with Alex's friend Bec (**Rebecca Illis**) things changed. There's clearly a strong influence from the other people who followed me, e.g. Alex's friend **Rebecca Illis** (Bec).
 
-There's no **facts** in this report, it's all people's **opinions**. Opinions are not **facts**. Courts deal with **facts**. I'll be doing my best on this site to break down each and every **opinion** against me, then dissolve the **opinion** with a **fact**. 
+There's no **facts** in this report, it's all people's **opinions**. Opinions are not **facts**. Courts deal with **facts**. I'll be doing my best on this site to break down each and every **opinion** against me, then dissolve the **opinion** with a **fact**.
 
 There's no denying, the bulk of this report is against me and makes me look like a real monster of a Dad - I'm not a monster of a Dad. There's things that been ignored, taken out of context, spoken words not recorded clearly from what was mentioned in the room with a clear skewed view based on influence from particular people interviewed. 
 
