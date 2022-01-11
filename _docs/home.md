@@ -19,14 +19,6 @@ As per [Convention on the Rights of the Child](https://www.unicef.org.au/our-wor
 Children should not be separated from their parents unless it is for their own good. For example, if a parent is mistreating or neglecting
 a child. Children whose parents have separated have the right to stay in contact with both parents, unless this might harm the child.
 
-1. States Parties shall ensure that a child shall not be separated from his or her parents against their will, except when competent authorities subject to judicial review determine, in accordance with applicable law and procedures, that such separation is necessary for the best interests of the child. Such determination may be necessary in a particular case such as one involving abuse or neglect of the child by the parents, or one where the parents are living separately and a decision must be made as to the child's place of residence.
-
-2. In any proceedings pursuant to paragraph 1 of the present article, all interested parties shall be given an opportunity to participate in the proceedings and make their views known.
-
-3. States Parties shall respect the right of the child who is separated from one or both parents to maintain personal relations and direct contact with both parents on a regular basis, except if it is contrary to the child's best interests.
-
-4. Where such separation results from any action initiated by a State Party, such as the detention, imprisonment, exile, deportation or death (including death arising from any cause while the person is in the custody of the State) of one or both parents or of the child, that State Party shall, upon request, provide the parents, the child or, if appropriate, another member of the family with the essential information concerning the whereabouts of the absent member(s) of the family unless the provision of the information would be detrimental to the well-being of the child. States Parties shall further ensure that the submission of such a request shall of itself entail no adverse consequences for the person(s) concerned.
-
 ![](./blobs/un_PNG20.png)
 
 #### An international agreement for child rights
