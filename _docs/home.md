@@ -10,9 +10,34 @@ toc: true
 
 [//]: # (margin:top right bottom left)
 
-The idea of this site is to look at each aspects of the family report (aka. Chapter 15 expert report) and break it down, one by one. The other idea of having this site was the fact that it's on the internet, everyone has internet access, it's all in the one place, point and click, no fumbling around for papers, it's all in the one place, fast, fluid and easy to access on any device. 
+## Prologue
 
-**Note:** this site is publicly accessible only if you have the direct URL, it is not indexed on any search engine.
+### The rights of the child
+
+Children should not be separated from their parents unless it is for their own good. For example, if a parent is mistreating or neglecting
+a child. Children whose parents have separated have the right to stay in contact with both parents, unless this might harm the child.
+
+1. States Parties shall ensure that a child shall not be separated from his or her parents against their will, except when competent authorities subject to judicial review determine, in accordance with applicable law and procedures, that such separation is necessary for the best interests of the child. Such determination may be necessary in a particular case such as one involving abuse or neglect of the child by the parents, or one where the parents are living separately and a decision must be made as to the child's place of residence.
+
+2. In any proceedings pursuant to paragraph 1 of the present article, all interested parties shall be given an opportunity to participate in the proceedings and make their views known.
+
+3. States Parties shall respect the right of the child who is separated from one or both parents to maintain personal relations and direct contact with both parents on a regular basis, except if it is contrary to the child's best interests.
+
+4. Where such separation results from any action initiated by a State Party, such as the detention, imprisonment, exile, deportation or death (including death arising from any cause while the person is in the custody of the State) of one or both parents or of the child, that State Party shall, upon request, provide the parents, the child or, if appropriate, another member of the family with the essential information concerning the whereabouts of the absent member(s) of the family unless the provision of the information would be detrimental to the well-being of the child. States Parties shall further ensure that the submission of such a request shall of itself entail no adverse consequences for the person(s) concerned.
+
+![](../blobs/un_PNG20.png)
+
+#### An international agreement for child rights
+
+Thirty years ago, world leaders made a historic commitment to the world’s children by adopting the **United Nations** Convention on the **Rights of the Child** – an international agreement on childhood.
+
+It’s become the most widely ratified human rights treaty in history and has helped transform children’s lives around the world.
+
+### The Family Report - why we're here
+
+The idea of this site is to look at each aspects of the [family report](/marcseparation/the_report/) (aka. Chapter 15 expert report) and break it down, one by one. The other idea of having this site was the fact that it's on the internet, everyone has internet access, it's all in the one place, point and click, no fumbling around for papers, it's all in the one place, fast, fluid and easy to access on any device. 
+
+**Note:** this site is publicly accessible only if you have the direct URL, it is not indexed on any search engine. As an example, you cannot search for phrases from this site in Google. 
 
 Just as I stood up after my session with **Ruth Selig** about to walk out, she looked me in the eye and told me that she's dealt with cases much worse than ours and that I'd have a good chance getting more time with the kids. However, after speaking with Alex's friend Bec (**Rebecca Illis**) things changed. There's clearly a strong influence from the other people who followed me, e.g. Alex's friend **Rebecca Illis** (Bec).
 
