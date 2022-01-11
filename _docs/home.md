@@ -12,7 +12,7 @@ toc: true
 
 ## Prologue
 
-### The rights of the child
+### The rights of the child - United Nations
 
 As per [Convention on the Rights of the Child](https://www.unicef.org.au/our-work/information-for-children/un-convention-on-the-rights-of-the-child):
 
@@ -27,7 +27,7 @@ a child. Children whose parents have separated have the right to stay in contact
 
 4. Where such separation results from any action initiated by a State Party, such as the detention, imprisonment, exile, deportation or death (including death arising from any cause while the person is in the custody of the State) of one or both parents or of the child, that State Party shall, upon request, provide the parents, the child or, if appropriate, another member of the family with the essential information concerning the whereabouts of the absent member(s) of the family unless the provision of the information would be detrimental to the well-being of the child. States Parties shall further ensure that the submission of such a request shall of itself entail no adverse consequences for the person(s) concerned.
 
-![](../blobs/un_PNG20.png)
+![](./blobs/un_PNG20.png)
 
 #### An international agreement for child rights
 
