@@ -52,7 +52,7 @@ reCaptcha:
 atom_feed:
   path                   : # blank (default) uses feed.xml
 
-# Search using GitHub pages as documented here https://community.algolia.com/jekyll-algolia/github-pages.html
+# Search using GitHub pages as documented here https://lunrjs.com/
 
 search                   : true # true, false (default)
 search_full_content      : true # true, false (default)
