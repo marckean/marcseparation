@@ -23,6 +23,13 @@ Current Parenting is not working
 
 ## Not informing me about kids medical appointments
 
-| February 1, 2021 | March 12, 2021 | November 18, 2020 |
-| ----------- | ----------- | ----------- |
-| ![](../blobs/coparenting/kids_medical_appointments1.jpg) | ![](../blobs/coparenting/kids_medical_appointments2.jpg) | ![](../blobs/coparenting/kids_medical_appointments3.jpg) |
+| February 1, 2021 | March 12, 2021 |
+| ----------- | ----------- |
+| ![](../blobs/coparenting/kids_medical_appointments1.jpg) | ![](../blobs/coparenting/kids_medical_appointments2.jpg) |
+
+| November 18, 2020 |
+| ----------- |
+| ![](../blobs/coparenting/kids_medical_appointments3.png) |
+
+
+
