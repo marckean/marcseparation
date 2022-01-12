@@ -43,7 +43,9 @@ There's no denying, the bulk of this report is against me and makes me look like
 
 It's blatantly obvious that it's war and that both Alex and her friend Bec are completely against me. It's also true that with my Asperger's people read me the wrong way and many people tell me that they can't read me at all, it looks like the report writer Ruth also couldn't read me correctly me, miss interpreted me completely with two non Asperger's people that followed me, it's no wonder this report is totally out of wack. 
 
-Report writers need to remain neutral and leave all emotions out completely with these things - not the case here. There's a tone of things incorrect and this site is here to bring it all out in the open by using photos, audio and videos - media in these formats doesn't lie. 
+Report writers need to remain neutral and leave all emotions out completely with these things - not the case here. There's a tone of things incorrect and this site is here to bring it all out in the open by using photos, audio and videos - media in these formats doesn't lie.
+
+**Note:** **I love my kids to bits**, why else would I go to so much trouble in putting this site together.
 ### How to use this site
 
 Main navigation is to the left, and I have grouped each section to make it easier to follow. 
