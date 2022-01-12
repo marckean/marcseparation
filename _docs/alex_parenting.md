@@ -81,11 +81,11 @@ This statement is slightly incorrect. It's actually the **maternal** mother **Ma
 
 This couldn't also be related to what I think, that based on [events I have recorded about Alex's mental health](/marcseparation/alex_mental_health/), Alex may be suffering from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) as though she’s disconnected from both her body and the world around.
 
-It's confirmed [here](/marcseparation/report_contradictions/#contradiction-2). It may seem great (in theory) that Alex picks up the kids from school, but realistically, she doesn't spend time with the kids after this, she's working. 
+It's confirmed [here](/marcseparation/report_contradictions/#contradiction-2). It may seem great (in theory) that Alex picks up the kids from school, but realistically, she doesn't spend time with the kids after school, as she's working. So the kids need to look after themselves, or in Charlie's case, left to his own devices. 
 
 ### After School care
 
-Why doesn't Alex put the kids in after school care? Well just like 
+Why doesn't Alex put the kids in after school care? Well just like I mentioned in the section [Co-Parenting not working](/marcseparation/co_parenting/), Alex has no money to spend on the kids, as she's spending it all 
 
 ### Aunty Vic - 5 star hotel pool
 
