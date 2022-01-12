@@ -31,7 +31,7 @@ Photos and videos speak for themselves.
 Kids to excited at my place...
 
 <iframe width="420" height="315"
-    src="https://www.youtube.com/embed/vvz1-OsgYB8?playlist=vvz1-OsgYB8&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+    src="https://www.youtube.com/embed/HBVIzwhJitw?playlist=HBVIzwhJitw&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
 Kids are faking this, but having so much fun together!
