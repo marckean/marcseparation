@@ -141,7 +141,6 @@ Alexandra Spence - DOB: 11/08/1975
 34. The mother said: "He loves the kids very much. I don't want to diss his parenting style. He does have a huge care factor but a very controlling style."
 
 35. I asked how the children had talked to her about contact with their father. She said they didn't really complain but there are a few issues, such as having to eat everything on their plate even though this might take two hours. He would make Chloe sit and eat until it was all gone. He makes them eat Jalapenos, anchovies and things that are "not to their palates". The mother told me that the father had Asperger's Syndrome and she knew that could explain some of his behaviour. ·She said they had a lot of fights about how to manage the children while they were still together.
- 
 
 36. The mother told me that she had taken Chloe for counselling and she was encouraged to ''use her voice" and if she is consistent as she gets older then has got to start listening to her.
 
