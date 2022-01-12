@@ -59,3 +59,10 @@ See what you can do when you focus and apply yourself, you can do anything…
 </iframe>
 
 
+### Clip & Climb | Gosford, NSW, Jan 2021
+
+Kids and I experienced this awesome place, we all had so much fun. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/_58f7he47qc?playlist=_58f7he47qc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
