@@ -26,7 +26,12 @@ As mentioned in the report, I told the report writer that it's as if Alex is run
 
 ![](../blobs/alexmentalhealth/report_alex_not_there.jpg)
 
-Doing extensive research online, knowing Alex from **before** and **after** we separated, it seems that she may be suffing from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) as though she's disconnected from both her body and the world around. These feelings of detachment are the mind’s way of coping in situations of extreme stress. And stress is exactly what Alex was going through before our separation, and now it may seem that this hasn't changed.
+Doing extensive research online, knowing Alex from **before** and **after** we separated, it seems that she may be suffering from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) its as though she's disconnected from both her body and the world around. These feelings of detachment are the mind’s way of coping in situations of extreme stress. And stress is exactly what Alex was going through before our separation, and now it may seem that this hasn't changed. depersonalisation disorder is meant to be only temporary, however, when these feelings keep occurring or never completely go away and interfere with ones ability to function, it can also be considered as **depersonalization-derealization** disorder. This disorder is more common in people who've had **traumatic experiences**.
+
+#### Alex has experiences traumatic experiences
+
+- Her mother died of Motor neurone disease (MND)
+- Alex experienced a tremendous amount of stress in the last 4 years of our relationship
 
 ### What we know of the current situation:
 

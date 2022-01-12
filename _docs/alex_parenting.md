@@ -79,6 +79,8 @@ This statement is slightly incorrect. It's actually the **maternal** mother **Ma
 
 - Alex never wants to spend time with Chloe - that's because Alex doesn't have the bandwidth.
 
+This couldn't also be related to what I think, that based on [events I have recorded about Alex's mental health](/marcseparation/alex_mental_health/), Alex may be suffering from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) as though she’s disconnected from both her body and the world around.
+
 ### Saturday mornings
 
 As it says in the report:
