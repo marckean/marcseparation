@@ -34,7 +34,7 @@ In other words, Charlie is left to his own devices to do what ever he wants.
 
 I sat down with both of my kids, interviewed & recorded them both (*with their knowledge*) and got a very interesting perspective on it.
 
-Charlie is constantly going to places by himself with his scooter, e.g. to school and the park. We know that [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can seem to manage and is very much the same as how Alex's own mum brought the kids up. We just need to look at Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moving out of the home when she was only 14 years old, the mother (Maree) was very hands off. Now look how **Julia** turned out, she's DEAD! Yes, it's the worst extreme, but if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced - would greatly benefit Alex, give her more time and make it much easier for her to manage.
+Charlie is constantly going to places by himself with his scooter, e.g. to school and the park. We know that [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can seem to manage and is very much the same as how Alex's own mum brought the kids up. We just need to look at Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moving out of the home when she was only 14 years old, the mother (Maree) was very hands-off. Now look how **Julia** turned out, she's DEAD! Yes, it's the worst extreme, but if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced - would greatly benefit Alex, give her more time and make it much easier for her to manage.
 
 All the literature on the topic of shared parenting:
 - [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/)
@@ -73,7 +73,7 @@ Seems to me that the way things are going, Alex is adopting her own mothers pare
 
 This statement is slightly incorrect. It's actually the **maternal** mother **Maree** that allowed her very own daughter (**Julia Spence** (now dead)) to move out of her home when she was only 14. It's a bit worrying don't you think, if Alex is allowed to adopt the same parenting style of her mother, look how Julia turned out - she's now DEAD!
 
-**It can't get any clearer than this**, Alex is behind the scenes and very much hands off. My daughter Chloe interviewed alone said it herself:
+**It can't get any clearer than this**, Alex is behind the scenes and very much hands-off. My daughter Chloe interviewed alone said it herself:
 
 ![](../blobs/apexparenting/report_alexparenting4.png)
 
@@ -81,6 +81,21 @@ This statement is slightly incorrect. It's actually the **maternal** mother **Ma
 
 This couldn't also be related to what I think, that based on [events I have recorded about Alex's mental health](/marcseparation/alex_mental_health/), Alex may be suffering from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) as though she’s disconnected from both her body and the world around.
 
+It's confirmed [here](/marcseparation/report_contradictions/#contradiction-2). It may seem great (in theory) that Alex picks up the kids from school, but realistically, she doesn't spend time with the kids after this, she's working. 
+
+### After School care
+
+Why doesn't Alex put the kids in after school care? Well just like 
+
+### Aunty Vic - 5 star hotel pool
+
+Just like Alex's sister Victoria. Vic also parents just like her mother, same mother as Alex - hands-off. 
+
+This is what I mentioned in the report:
+
+![](../blobs/apexparenting/report_vic_5starthotel.png)
+
+There were other high paying guest at the hotel, it was embarrassing and Henry was running around out of control around the 5 start hotel pool. But just like her mother, Vic was totally in the background and hand-off to it all. 
 ### Saturday mornings
 
 As it says in the report:
@@ -88,24 +103,22 @@ As it says in the report:
 ![](../blobs/apexparenting/report_bec_saturday_morning_kids.jpg)
 
 Alex is always at work, **she doesn't have the bandwidth to spend quality time with the kids** or look after the kids herself. 
-## Bec and the kids
 
-
-
-No control or discipline
+## No control or discipline
 - The children are left to their own devices. 
 
-- When I get the kids before they adjust, they don’t do what they’re told
-- Charlie tells me ‘No’
-- Kids run amuck around the shops touching everything, I tell them look but not touch and to not run around as there’s elderly people that they need to look out for and respect
-- Aunty Vic - 5 star hotel pool. 
+
+![](../blobs/apexparenting/report_alex_could_be_stricter.png)
+
+- Alex's best friend Bec said it herself, Alex could be stricter
+
+
+
 
 
 No structure
 - Alex never had proper structure growing up.
 - The kids need structure, then need to learn routine
-
-
 
 
 Fear & Uncomfortable
@@ -115,7 +128,4 @@ Living arrangements
 - Back yard grass edges is a mess and out of control, the kids complain about always getting leeches from the back yard. 
 - House is constantly unlocked, we back on to bush 
 
-Chloe sick
-- Constantly has a sore tummy, for the past 2 years, something is causing it and Alex has done nothing to look into it
-- Chloe had a niggling cough for 4 months, never went away. Alex didn’t do anything about it, I bought cough medicine which got rid of it. 
-- Chloe constantly had issues with her mouth and Alex does nothing about fixing it 
+

@@ -7,8 +7,15 @@ redirect_from:
   - /theme-setup/
 toc: true
 ---
-The current co-parenting is not working
+The current co-parenting is not working. Alex is under pressure and is not coping, adopting the [hands-off parenting approach](/marcseparation/alex_parenting/#alex-is-never-around) that her own mother took. The 28.6% of the time that I have the kids, there's been on-going health issues with Chloe. 
 
+- Chloe constantly has a sore tummy, for the past 2 years, something is causing it and Alex has done nothing to look into it properly other than band-aid fixes
+- Chloe has had a niggling cough for 4+ months, never went away. Alex hasn't done anything about it, I bought cough medicine which did seem to help somewhat, but she needs to be taken to ENT specialist to look into it further
+- Chloe constantly has issues with her mouth, trouble swallowing certain foods and Alex does nothing about fixing it. 
+
+I call it this this **temporary phase of life**, a **holding pattern** so to speak, the time between separation (Nov 2019) and a final hearing/settlement. Been going on for over two years now. Seems to me that in this **holding pattern**, Alex is clutching on for dear life with the [minimal money that she has](/marcseparation/child_support/#alex-wages) and spending a tone of money in legal costs, meanwhile she's [heavily dependant on me for child support](/marcseparation/child_support/#child-support-alex-is-receiving-from-me) to live day-to-day and the kids are neglected with on-going health issues that need to be properly looked at, any money she does have is not being properly spent on the kids, it's being spent in legal bills. 
+
+Alex is not coping.
 ## General events
 
 ### March 4, 2021 Communicating via the kids

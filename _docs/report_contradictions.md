@@ -30,3 +30,22 @@ Chloe says the opposite.
 ![report_contradictions4](../blobs/reportcontradictions/report_contradictions4.png)
 
 It's true that when the kids are with their Mum, they are left alone to play with their friends and/or be looked after by Aunty's or friends as Alex needs to work. It's also true that Charlie goes to the park by himself. 
+
+This is Chloe discussing it with me...
+
+
+<audio src="../audio/Alex_works_from_home_after_3pm.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
+### Contradiction 3
+
+Alex working on Saturday mornings.
+
+![report_contradictions3](../blobs/reportcontradictions/report_contradictions3.png)
+
+Chloe says the opposite. 
+
+![report_contradictions4](../blobs/reportcontradictions/report_contradictions4.png)
+
+It's true that when the kids are with their Mum, they are left alone to play with their friends and/or be looked after by Aunty's or friends as Alex needs to work. It's also true that Charlie goes to the park by himself. 

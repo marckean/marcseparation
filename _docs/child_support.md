@@ -40,7 +40,6 @@ Alex earns $32K~ / year, Vs me who earns $168K~ year. Alex clears about $500~ / 
 Alex gets $2.2K Child Support per month from me. Alex pays me nothing to me in return.
 
 <br>
-<br>
 
 As we've already [demonstrated and established](/marcseparation/alex_parenting/), Alex's way of parenting is just like how her own mother parented her, very much hands-off. Alex doesn't care about the kids so much, as mush as she cares about how much money that she can get by having the kids for most of the time. 
 

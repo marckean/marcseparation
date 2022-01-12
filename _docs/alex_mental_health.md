@@ -43,10 +43,10 @@ Doing extensive research online, knowing Alex from **before** and **after** we s
 
 
 Alex has mental issues - the below is a summary of real events, which have been documented at the time of the events happening
-	· Alex runs on auto-pilot, her brain is not engaged on things that she's doing
-	· Alex runs on subconscious and is not conscious most of the time 
-	· The house just about burns down
-	· The house is constantly left unlocked
+- Alex runs on auto-pilot, her brain is not engaged on things that she's doing
+- Alex runs on subconscious and is not conscious most of the time 
+- The house just about burns down
+- The house is constantly left unlocked
 
 ### Alex's crap carpark
 
