@@ -8,7 +8,7 @@ redirect_from:
 toc: true
 ---
 
-## Charlie going to the park by himself
+## Charlie going to places by himself
 
 ![](../blobs/charlieparkbyhimself/report_charlieparkbyhimself1.png)
 
@@ -19,18 +19,34 @@ toc: true
  - This is comment that my daughter Chloe made in the session
 
 Charlie has told me that he goes to the park by himself each day and hangs out with his friends (Ted, Oscar, etc.). As I understand it, he is unsupervised both walking up to the park and whilst at the park. If this is correct, I am very concerned at the possible influences and temptations for unsupervised boys this age and from the possibility of adults with ulterior motives trying to coax Charlie (and the other boys) into inappropriate behaviour or worse – in Charlie’s case, either on the street going to or from the park or at the park. Charlie did say that on one occasion, a father of one of the other boys was present but had to go, leaving the boys on their own. I am unclear as to whether there is any other supervision by a responsible adult.
- 
+
 There are potential dangers for boys this age being out and about on their own. In addition to inappropriate influences and temptations from within the group (cigarettes, drugs, porn, etc.) there is also the real possibility of risks and dangers from adults trying to take advantage of boys – i.e. paedophilia.
- 
+
 If my understanding of the situation is correct from what Charlie has told me, then I am really concerned at Charlie’s wellbeing and development. Your comments would be appreciated and hopefully you can ease my mind.
 
 The comment from my son Charlie below when asked from the report writer:
 
 ![](../blobs/apexparenting/report_charlie_park.jpg)
 
-Charlie is constantly at the park, because it's [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can manage. Charlie and other parents tell me that sometimes at the park no parents/adults are there to supervise and what's more, if there is a parent, it's not biological mother or father of Charlie.
+In other words, Charlie is left to his own devices to do what ever he wants. 
 
-### Dad and doesn't take kids to the park
+I sat down with both of my kids, interviewed & recorded them both and got a very interesting perspective on it.
+
+Charlie is constantly going to places by himself on his scooter, e.g. to school and the park. We know that [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can manage and is very much the same how Alex's own mum brought the kids up, just need to look at Julia moving out of the home when she was only 14, the mother was very hands off. Now look how Julia turned out, she's DEAD! Yes, it's the worst extreme, but if we look at all the literature on the topic of shared parenting, then having the kids more time with me wouldn't greatly assist Alex, give her more time and make it much easier to manage.
+
+All the literature on the topic of shared parenting:
+- [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/)
+- [Platform for European Fathers (PEF)](/marcseparation/platform_for_european_fathers/)
+- [Scientific research for shared parenting](/marcseparation/my_initial_comments/#scientific-research-for-shared-parenting)
+- [Nielsen’s Research: Divorce & Shared Parenting](/marcseparation/appendix_nielsens_research/)
+
+While at the park, Charlie and other parents (Jackie (mother of one of Charlie's friends)) tell me that sometimes at the park no parents/adults are there to supervise and what's more, if there is a parent, it's not biological mother or father of Charlie. One of the stories I heard was that while Charlie was at the park with his friends, one of the parents left to go and get a coffee then came back, but was gone for about 20 minutes.
+
+<audio src="../audio/Charlie_going_to_park_by_himself.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
+### Dad and doesn't take kids to the park (False opinion from the report)
 
 What Charlie is meaning by this statement below, he means like what happens at his mothers place. Currently he's with his mother 71.4% of the time, so things that happen (rightly or wrongly) with his mother would seem routine to him:
 
