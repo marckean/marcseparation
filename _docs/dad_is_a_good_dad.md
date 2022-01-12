@@ -28,10 +28,17 @@ Photos and videos speak for themselves.
 
 ### The below some videos of the kids at my place
 
+Kids to excited at my place...
+
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/vvz1-OsgYB8?playlist=vvz1-OsgYB8&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+Kids are faking this, but having so much fun together!
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/Zqry3yZ9eJg?playlist=Zqry3yZ9eJg&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
 
 ### Australia Zoo
 
