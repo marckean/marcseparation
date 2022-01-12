@@ -58,6 +58,8 @@ So keep this in mind when reading the sections from **259** onwards, it wasn't a
  Of course **I am greatly disadvantaged and unfairly judged** with this family report. The report focuses on the **now**, not the **future** for when my life is not **temporary** and it is back to normal. 
 
  As we look to the future, once the separation is over, my plan it take my money from the matrimonial house and buy another house, and it's then that my time with the kids can be much more quality time spent with the kids.
+
+ ![](..blobs/../../blobs/child_support_weakens_bond.png)
  
 ## About Marc Kean
 
