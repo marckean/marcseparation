@@ -18,6 +18,18 @@ The report contained the following:
 
 ![](../blobs/lovedad/report_bec_bad_dad1.png)
 
+- This is crap, the kids love being with me. The below videos, you can see, th kids are more than happy spending time with me. 
+
+![](../blobs/lovedad/report_bec_bad_dad2.png)
+
+- This didn't happen, I remember this night very clearly as I saw Bec's boobs, it's etched in the back of my mind forever. Yes, I remember walking into the kitchen of the hotel room that we had near the Vivid light show, and there was Bec sitting on the ground in the kitchen with my son Charlie, Bec was totally topless with her boobs hanging out. I quickly walked back out again. But got me wondering afterwards, why is Bec totally topless and my son Charlie was right there at the same time? Why didn't Bec get changed in the bathroom? 
+
+    Plus, the hotel that we were in was right at the Vivid light show, so we didn't drive to it, we simply walked to it as we were right on circular quay in the middle fo Sydney. 
+
+![](../blobs/lovedad/report_bec_bad_dad3.png)
+
+- Utter bullshit, as per this site 
+
 ## My rebuttal
 
 
