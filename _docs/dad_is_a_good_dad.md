@@ -83,7 +83,7 @@ Great activity for the kids to really get involved in something that we can all 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/qWYC70au4ts?playlist=qWYC70au4ts&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
-
+<br>
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/I_OHOYEqIY0?playlist=I_OHOYEqIY0&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
@@ -95,8 +95,37 @@ A fun activity and challenge as a family, to build a gingerbread house. We all t
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/6jcYpYPdIfQ?playlist=6jcYpYPdIfQ&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
-
+<br>
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/bplzhkNkYdA?playlist=bplzhkNkYdA&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+### Boss Day
+
+Similar to the movie of the same name. I gave the kids points for doing jobs at my place. Chloe managed to get enough points to have her very own **boss day** - she was the boss for this very one day. So it was off to the shops, as this is what she wanted to do.
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/weHhTMzBIls?playlist=weHhTMzBIls&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+<br>
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/wZXi-_c4o4E?playlist=wZXi-_c4o4E&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+### Halloween 2020 / 2021
+
+Spent 2020 Halloween with the kids:
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/7QFUTMtBnoY?playlist=7QFUTMtBnoY&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+<br>
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/V97XWdcX4Dc?playlist=V97XWdcX4Dc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+Spent 2021 Halloween with the kids:
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/KqFBTrD8H7w?playlist=KqFBTrD8H7w&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
