@@ -28,7 +28,7 @@ The report contained the following:
 
 ![](../blobs/lovedad/report_bec_bad_dad3.png)
 
-- Utter bullshit, as per this site 
+- Utter bullshit, as per this site [I am fun](/marcseparation/dad_fun/), [I am a good Dad](/marcseparation/dad_is_a_good_dad/) and [I take the kids to the park](/marcseparation/kids_park/).
 
 ## My rebuttal
 

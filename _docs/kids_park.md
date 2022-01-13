@@ -20,6 +20,12 @@ toc: true
 
 ![](../blobs/kidstothepark/report_kidspark3.png)
 
+## My rebuttal 
+
+Below are all the photos of me taking the kids to the park. This is not an exhaustive list, I have taken the kids much more than this, however these are the times that I managed to capture it on camera.
+
+If you want the videos of the kids and I at the park, [here they are](/marcseparation/kids_park_videos/).
+
 ### Dad and doesn't take kids to the park
 
 What Charlie is meaning by this statement below, he means like what happens at his mothers place. Currently he's with his mother 71.4% of the time, so things that happen (rightly or wrongly) with his mother would seem routine to him:

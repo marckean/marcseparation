@@ -22,6 +22,10 @@ toc: true
 
 ## My rebuttal
 
+Below are all the videos of me taking the kids to the park. This is not an exhaustive list, I have taken the kids much more than this, however these are the times that I managed to capture it on video.
+
+If you want the photos of the kids and I at the park, [here they are](/marcseparation/kids_park/). 
+
 My kids (Charlie & Chloe) at Storey Park in Hornsby:
 
 <iframe width="420" height="315"
