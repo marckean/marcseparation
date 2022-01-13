@@ -73,3 +73,30 @@ Kids and I experienced this awesome place, we all had so much fun.
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/_58f7he47qc?playlist=_58f7he47qc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
+
+## Home activities
+
+### Charlie & Chole helped to build their brand new loft bed from IKEA
+
+Great activity for the kids to really get involved in something that we can all contribute to as a family, learn some new skills and really enjoy the finished result. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/qWYC70au4ts?playlist=qWYC70au4ts&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/I_OHOYEqIY0?playlist=I_OHOYEqIY0&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+### Gingerbread house
+
+A fun activity and challenge as a family, to build a gingerbread house. We all too part in this group activity, was fun and kept us all occupied for quite some time. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/6jcYpYPdIfQ?playlist=6jcYpYPdIfQ&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/bplzhkNkYdA?playlist=bplzhkNkYdA&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+

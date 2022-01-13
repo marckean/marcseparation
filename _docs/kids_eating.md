@@ -58,6 +58,14 @@ Then very recently, we can see that Charlie can also eat 5 sushi rolls in the on
     src="https://www.youtube.com/embed/kOzZyaFyZ20?playlist=kOzZyaFyZ20&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+### Charlie eating six (6) sushi rolls in one siting, Chloe also broke her own record
+
+Charlie broke his own record with 6 sushi rolls in the one sitting, then Chloe also broke her own record (3 rolls and one sushi sandwich). All without being force-fed, they did it on their own accord, I just had to pay the bill. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/5ZF8GMgmfMI?playlist=5ZF8GMgmfMI&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
 Seriously, my kid is my kid don't forget and he has a massive appetite as he has a **lot** of growing to do.
 
 #### Aunty Vic starves the kids
