@@ -23,7 +23,9 @@ Remember for me as the father, that as per [what I mentioned in my initial comme
 
 However, this will give you a good idea that as Alex has remain in the matrimonial home, again only **temporary**, she is not coping to maintain the home, it's way too big for her to manage.
 
-The below video is a walk through of the home, it's a total dump and reminds me of walking through her own late mothers house when she was alive. Alex has lost total control over the maintenance of the home.
+The below video is a walk through of the home, it's a total dump and reminds me of walking through her own late mothers house when she was alive.
+
+Alex has lost total control over the maintenance of the home.
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/gDr0XIgdk7A?playlist=gDr0XIgdk7A&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
