@@ -19,6 +19,12 @@ toc: true
 
 ## My rebuttal
 
+Remember for me as the father, that as per [what I mentioned in my initial comments](/marcseparation/my_initial_comments/#unfairly-judged-based-on-current-time-with-the-kids), my current living arrangement is only **temporary**, back at the start of separation I had no choice but reluctantly move out of the home in Jan 2020 and then rent an apartment **temporarily** (now going on 2 years) until this separation is totally completed. All my money is tied up in the matrimonial home.
+
+However, this will give you a good idea that as Alex has remain in the matrimonial home, again only **temporary**, she is not coping to maintain the home, it's way too big for her to manage.
+
+The below video is a walk through of the home, it's a total dump and reminds me of waling through her own late mothers house when she was alive. Alex has lost total control over the maintenance of the home.
+
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/gDr0XIgdk7A?playlist=gDr0XIgdk7A&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
