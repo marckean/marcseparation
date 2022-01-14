@@ -30,6 +30,10 @@ The report contained the following:
 
 - Utter bullshit, as per this site, I have published pages with a lot of content to quash this - [I am fun](/marcseparation/dad_fun/), [I am a good Dad](/marcseparation/dad_is_a_good_dad/) and [I take the kids to the park](/marcseparation/kids_park/).
 
+![](../blobs/lovedad/report_bad_dad1.png)
+
+- There's reasons behind this attention to detail, as per all the issues that I had with Alex and her mental health, [all the issues that I had with her](/marcseparation/alex_mental_health/) when living with her, I couldn't understand why she did the things that she did, it didn't make sense to me, constantly asking questions to her and always getting a different response to what the answer should have been. The below shows that this doesn't continue with my kids, and that my kids are very much in tune with me, likewise I'm very much in tune with my kids. My daughter [Chloe for example](/marcseparation/chloe/), I totally understand her, as like me she has Asperger's, she like a real mini me and we simply connect. As mentioned [here](/alex_parenting/#alex-is-never-around), Alex never plays with Chloe.
+
 ## My rebuttal
 
 

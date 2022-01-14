@@ -148,3 +148,24 @@ I ask the question to Alex and Chloe, who opened the door, both told me they did
 It wasn't until later when I threatened to get Chloe into trouble for lying, Alex told me it was her that it was her that said it was OK for Chloe to let Ginger in the house.
 
 **Witness:** My mum was here at the the time and she too witnessed this. 
+
+### Constantly putting non recycling things in the recycling bin
+
+I'm constantly telling her not to put stuff like carpet in the recycling bin such as shoes, clothing or carpet. 
+
+![](../blobs/alexmentalhealth/clothing_in_recycling.png)
+
+I would always find clothing, old shoes etc int he recycling. You can't recycle these things. 
+
+### Screw replacement to bathroom cabinet
+
+Instead of being told there was a loose handle and to fix the loose handle in the bathroom, I find a coat hanger hook that had been placed in the back of the door of the bathroom cupboard as a makeshift screw. I did ask who put it behind the bathroom handle, who put it there? No one owns up, no one tells me that a screw is missing - radio silence from everyone including Alex. 
+
+![](../blobs/alexmentalhealth/coathangerhook.png)
+
+
+### Stainless Steel Sink Strainer
+
+The Stainless Steel Sink Strainer is missing in the sink. I ask Alex and she does't know what happened to it. She looks for it and finds it in the bin. She's gone to shake food scraps out of the Stainless Steel Sink Strainer and in doing so, she's dropped it in there without realising it. Who does this? 
+
+![](../blobs/alexmentalhealth/drain1.png)

@@ -738,7 +738,7 @@ He has a strong work ethic and is judiciously fair and a capable handyman, very 
 
 #### The father
 
-The father is aware of the physical needs of food, shelter and exercise that the children require but his insistence on them finishing everything on the plate irrespective of how long it takes, is a mistake. It could contribute to a cWld's anxiety at mealtime, and lead to an eating disorder or a misunderstanding of the child's psychological and emotional needs and changing their dietary requirements with age.
+The father is aware of the physical needs of food, shelter and exercise that the children require but his insistence on them finishing everything on the plate irrespective of how long it takes, is a mistake. It could contribute to a child's anxiety at mealtime, and lead to an eating disorder or a misunderstanding of the child's psychological and emotional needs and changing their dietary requirements with age.
 
 His reliance on the paternal grandmother to assist him with parenting advice may be misplaced, given that she raised him largely with punishment and denied that it would be an issue if the children were changed from two days to seven days a fortnight. The paternal grandmother did not appear to be psychologically minded to me and have insight into the children' s emotional lives. The father clashed with his sister over the way he was managing the separation. Presumably they had disagreed over parenting.
 
@@ -746,7 +746,7 @@ People with Asperger' s syndrome are poor at picking up social cues and often ca
 
 Children's needs change with age and the father's persistent disregard of their need for age appropriate activity is unthinking and unhelpful. For example, taking them on a seven kilometre run. He needs the seven kilometre run but they do not and it is too long for an eight year old girl. He expected them to wait in the car for him. Whilst modelling regular exercise is to be applauded he can do a seven kilometre run on the five days a week that he does not have the children in contact. An adjustment needs to be made for their age and stage.
 
-Teenagers frequenlty have machinations with their friends and their friendship groups (as the father experienced himself when young). He was unable to sort out his own problems and ended up leaving school early. He is ill equipped to assist his children through the normal problems of interpersonal relationships which will inevitably arise.
+Teenagers frequently have machinations with their friends and their friendship groups (as the father experienced himself when young). He was unable to sort out his own problems and ended up leaving school early. He is ill equipped to assist his children through the normal problems of interpersonal relationships which will inevitably arise.
  
 
 #### The mother
@@ -802,7 +802,7 @@ When the children were with him, he seemed to complete his own needs in preferen
 ### Any views expressed by the children and any factors (such as maturity and level of understanding) that may affect the weight to be accorded to those views:
  
 
-Both children put their father in the house next door to their own house in the drawing and themselves with their mother. Charlie included Chloe and the dog in his home. Chloe put Charlie next door with the father and Chelsea, her cousin. This illustrates that both children want to see their father. Neither of the children had a mature understanding of the decisions being made about their future. Charlie was not particularly mature for his age but appeared at least average in intelligence. Chloe seemed bri_ghtbut was only eight and two months at the time of the assessment and quite attached to the mother and possibly too knowledgeable about the court proceedings.
+Both children put their father in the house next door to their own house in the drawing and themselves with their mother. Charlie included Chloe and the dog in his home. Chloe put Charlie next door with the father and Chelsea, her cousin. This illustrates that both children want to see their father. Neither of the children had a mature understanding of the decisions being made about their future. Charlie was not particularly mature for his age but appeared at least average in intelligence. Chloe seemed bright but was only eight and two months at the time of the assessment and quite attached to the mother and possibly too knowledgeable about the court proceedings.
 
 ### The extent to which each of the parents has taken, or failed to take the opportunity to:
 
@@ -810,7 +810,7 @@ Both children put their father in the house next door to their own house in the 
 
 Each parent was making decisions about the children while the children were in their care. Whilst the parents are only communicating through solicitors it was not surprising that some information was not changing hands, such as the father was unaware that Chloe had been to see a psychologist.
 
-The father's tendency to want to control details of the children' s lives has meant co­ parenting with him has been extremely difficult for the mother. This difficulty probably underlies the parents' inability to get on.
+The father's tendency to want to control details of the children' s lives has meant co-parenting with him has been extremely difficult for the mother. This difficulty probably underlies the parents' inability to get on.
 
 #### spend time with the children; and
 
@@ -826,10 +826,10 @@ Both parents have tried to fulfil their role as parents in maintaining the child
 
 i). The likely effect of any changes in the children's circumstances, including the likely effect on the children of any separation from either of the parents or any other person (including any grandparent or other relative of the children) with whom the children have been living:
 
-If the court were to make Orders for weekabout contact, the children would be upset initially and would eventually adjust to the extended stay with the father. They would not
+If the court were to make Orders for week-about contact, the children would be upset initially and would eventually adjust to the extended stay with the father. They would not
  
 
-be happy about it as they would see less of their own friends and less of their main security figure (the mother) which would caus.e them to become angry with the father and refuse to attend or possibly behave badly (Charlie). Chloe is probably more of an internaliser and would become more anxious missing her mother and her cousin, Chelsea.
+be happy about it as they would see less of their own friends and less of their main security figure (the mother) which would cause them to become angry with the father and refuse to attend or possibly behave badly (Charlie). Chloe is probably more of an internaliser and would become more anxious missing her mother and her cousin, Chelsea.
 
 I am concerned that the father would not support the mother's enrolling the children on Saturday morning sport such as tennis or cricket. He has a history of working at home on weekends and prioritising his own exercise regime over the children's needs to play and interact with him and their friends.
 
@@ -839,7 +839,7 @@ The parents are currently only communicating via solicitors' letters. Their hist
 
 ### The maturity, sex, lifestyle and background (including lifestyle, culture and traditions) of the children and of either of the children's parents and any other characteristics of the children that the Single Expert thinks are relevant:
 
-The children are of Anglo-Australianextraction with no religious or cultural issues. The main disagreement has been over general parenting issues between the parents.
+The children are of Anglo-Australian extraction with no religious or cultural issues. The main disagreement has been over general parenting issues between the parents.
 
 Charlie is a confident young man who is easy·  going and emotionally  aware. He is very interested in sports and his understanding is appropriate to his age.
 
@@ -852,19 +852,19 @@ Both children expressed a wish to live near their father and to continue to spen
 The mother's proposal is that the children remain at four days per fortnight or three days
 per fortnight and one dinner in the alternate week. The father's proposal is  for week about 50/50.
 
-As stated above, I think the children would adjust to 50/50 but would be unhappy about it and  eventually  refuse to  attend.  The childre_n seem·  very happy  and  well-adjusted  with four nights a fortnight although as they get into high school they may do better with three nights one week from Thursday to Sunday and one evening on Thursday the following week which could work better.
+As stated above, I think the children would adjust to 50/50 but would be unhappy about it and  eventually  refuse to  attend.  The children seem very happy  and  well-adjusted  with four nights a fortnight although as they get into high school they may do better with three nights one week from Thursday to Sunday and one evening on Thursday the following week which could work better.
 
 A whole week in the long school holidays seems long for Chloe according to the mother, so a three-week block in summer might be something to postpone until both the children are in high school.
 
-The mother would prefer week about throughout the long holidays and this would ·still allow the children to go to Queensland to visit the paternal grandparents.
+The mother would prefer week about throughout the long holidays and this would still allow the children to go to Queensland to visit the paternal grandparents.
 
-### What recommendations you can make to assist the Court in determining the time that the children should live with o. r sp end time with each parent:
+### What recommendations you can make to assist the Court in determining the time that the children should live with or spend time with each parent:
 
 These children love sport and do not mind structure so they should have the benefit of learning to play sports and being part of a team. This enriches their lives and allows them to broaden their peer group network. I believe that both parents need to support their attendance at weekend sport by paying for it and taking them where possible or arranging for others to take them if not.
 
-Children learn by modelling on their parent's behaviour. Both parents in this family are hardworking individuals who love their children. The father's obsessional attention to detail has marred his marriage and will alienate his children unless he can relax about issues. Demanding children finish everything on their plate is potentially cruel and an unnecessary focus and control of food is likely to emotionally scar a child. Encouraging moderation in filling their plate and offering the healthiest options is a far better way of assisting a child to learn the right choices.
+Children learn by modelling on their parent's behaviour. Both parents in this family are hard working individuals who love their children. The father's obsessional attention to detail has marred his marriage and will alienate his children unless he can relax about issues. Demanding children finish everything on their plate is potentially cruel and an unnecessary focus and control of food is likely to emotionally scar a child. Encouraging moderation in filling their plate and offering the healthiest options is a far better way of assisting a child to learn the right choices.
 
-Young children need their parents to do things with them even if it is boring to the parent and feels like a waste of time to them. Listening to and enacting the children' s choices sometimesis important in building their self-esteem.·
+Young children need their parents to do things with them even if it is boring to the parent and feels like a waste of time to them. Listening to and enacting the children' s choices sometimes important in building their self-esteem.·
 
 ### Any other matter considered relevant:
 
