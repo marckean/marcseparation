@@ -11,14 +11,13 @@ toc: true
 
 ![](../blobs/reportkidslookedafter/report_kidslookedafter1.png)
 
+- 
 
 ![](../blobs/reportkidslookedafter/report_kidslookedafter2.png)
+
 - This is about Julia, she lived between Sydney & Adelaide
 
-
+![](../blobs/beckids/report_bec_kids.png)
 
 ## Bec and the kids
-
-
-
 
