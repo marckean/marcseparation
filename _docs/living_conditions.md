@@ -53,3 +53,13 @@ This video below, you will notice that about half way through that there's a com
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/1oJeG2IlXPQ?playlist=1oJeG2IlXPQ&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
+
+### Current state of the house
+
+As you can see that fairly substantial maintenance has been undertaken. You see from the rest of the footage that the house is still looking like a dump and a total pigsty. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/ylQRMTdOcjc?playlist=ylQRMTdOcjc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+Alex and I are both **tenants in common** for the matrimonial home. It says from [here](https://www.aussielegal.com.au/nsw-property-law-co-ownership-tenants-in-common-joint-tenants) That if one co-owner spends money in carrying out necessary repairs and maintaining the property, or pays for the construction of improvements on the property, without the consent of the other co-owner(s), that co-owner cannot force the others to contribute for the expenses paid for by that co-owner.
