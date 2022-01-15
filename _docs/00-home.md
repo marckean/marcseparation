@@ -20,7 +20,7 @@ Children should not be separated from their parents unless it is for their own g
 
 More details in the reference link immediately above.
 
-![](./blobs/un_PNG20.png)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="./blobs/un_PNG20.png"</p>
 
 #### An international agreement for child rights
 
@@ -30,7 +30,7 @@ It’s become the most widely ratified human rights treaty in history and has he
 
 ### The Family Report - why we're here
 
-The idea of this site is to look at each aspects of the [family report](/marcseparation/the_report/) (aka. Chapter 15 expert report) and break it down, one by one. The other idea of having this site was the fact that it's on the internet, everyone has internet access, it's all in the one place, point and click, no fumbling around for papers, it's all in the one place, fast, fluid and easy to access on any device. 
+The idea of this site is to look at each aspects of the [family report](/marcseparation/the_report/) (aka. Chapter 15 expert report) and break it down, one by one. The other idea of having this site was the fact that it's on the internet, everyone has internet access, it's all in the one place, point and click, no fumbling around for papers, it's all in the one place, fast, fluid and easy to access on any device.
 
 **Note:** this site is publicly accessible only if you have the direct URL, it is not indexed on any search engine. As an example, you cannot search for phrases from this site in Google. 
 
