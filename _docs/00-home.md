@@ -16,8 +16,7 @@ toc: true
 
 As per [Convention on the Rights of the Child](https://www.unicef.org.au/our-work/information-for-children/un-convention-on-the-rights-of-the-child):
 
-Children should not be separated from their parents unless it is for their own good. For example, if a parent is mistreating or neglecting
-a child. Children whose parents have separated have the right to stay in contact with both parents, unless this might harm the child.
+Children should not be separated from their parents unless it is for their own good. For example, if a parent is mistreating or neglecting a child. Children whose parents have separated have the right to stay in contact with both parents, unless this might harm the child.
 
 More details in the reference link immediately above.
 
@@ -34,6 +33,8 @@ It’s become the most widely ratified human rights treaty in history and has he
 The idea of this site is to look at each aspects of the [family report](/marcseparation/the_report/) (aka. Chapter 15 expert report) and break it down, one by one. The other idea of having this site was the fact that it's on the internet, everyone has internet access, it's all in the one place, point and click, no fumbling around for papers, it's all in the one place, fast, fluid and easy to access on any device. 
 
 **Note:** this site is publicly accessible only if you have the direct URL, it is not indexed on any search engine. As an example, you cannot search for phrases from this site in Google. 
+
+At the start of the session with **Ruth Selig**, I asked her how things would run in the session, as I saw her sitting there with a pen and paper. I asked if she would be recording the session (verbally) and she said "*no*", she's happy to manually write everything down pen/paper, her interpretation of what I say in real time. Looking back, I should have asked if I could record the audio of the session for accuracy. It's very common for people with Asperger's, everyone tells me that they can't read me and that things I say are miss-interpreted and I am always perceived differently to other people. It's no wonder this report is way off.
 
 Just as I stood up after my session with **Ruth Selig** about to walk out, she looked me in the eye and told me that she's dealt with cases much worse than ours and that I'd have a good chance getting more time with the kids. However, after speaking with Alex's friend Bec (**Rebecca Illis**) things changed. There's clearly a strong influence from the other people who followed me, e.g. Alex's friend **Rebecca Illis** (Bec).
 
