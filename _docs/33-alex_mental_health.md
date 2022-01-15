@@ -64,7 +64,7 @@ August 2, 2019 - At Nelson Bay, Alex bought parking ticket from a street parking
 
 ### The house just about burns down
 
-January 14, 2020 - The kitchen stove was left on from breakfast, I walked into the kitchen at 2.15pm and found it had been left on, the stove was hot and drawing a tone of electricity, I was paying the electricity bill, and the house could have caught fire.
+January 14, 2020 - The kitchen stove was left on from breakfast, I walked into the kitchen at 2.15pm and found it had been left on, the stove was hot and drawing a ton of electricity, I was paying the electricity bill, and the house could have caught fire.
 
 ### The grass that was for sale
 

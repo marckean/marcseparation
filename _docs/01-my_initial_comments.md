@@ -20,7 +20,7 @@ Previous life being more than 2 years ago, prior to separation with my Ex (Alex)
 
 ### Kids are kids, not adults
 
-A tone of information throughout [this report](/marcseparation/the_report/) refers to what kids want, e.g. asking how much time the kids want to spend with each parent
+A ton of information throughout [this report](/marcseparation/the_report/) refers to what kids want, e.g. asking how much time the kids want to spend with each parent
 
 ### Single parent
 
