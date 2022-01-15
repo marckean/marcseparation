@@ -20,7 +20,7 @@ Children should not be separated from their parents unless it is for their own g
 
 More details in the reference link immediately above.
 
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="./blobs/un_PNG20.png>"></p>
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="./blobs/un_PNG20.png"></p>
 
 #### An international agreement for child rights
 
@@ -40,7 +40,7 @@ There's no **facts** in this report, it's all people's **opinions**. Opinions ar
 
 There's no denying, the bulk of this report is against me and makes me look like a real monster of a Dad - I'm not a monster of a Dad. There's things that been ignored, taken out of context, spoken words not recorded clearly from what was mentioned in the room with a clear skewed view based on influence from particular people interviewed. 
 
-At the start of the session with **Ruth Selig**, I asked her how things would run in the session, as I saw her sitting there with a pen and paper. I asked if she would be recording the session (verbally) and she said "*no*", she's happy to manually write everything down pen/paper, her interpretation of what I say in real time. Looking back, I should have asked if I could record the audio of the session for accuracy. It's very common for people with Asperger's, everyone tells me that they can't read me, people read me the wrong way, people tell me that they can't read me at all and that things I say are miss-interpreted and I am always perceived differently to other people. 
+At the start of the session with **Ruth Selig**, I asked her how things would run in the session, as I saw her sitting there with a pen and paper. I asked if she would be recording the session (verbally) and she said "*no*", she's happy to manually write everything down pen/paper, a look on her face as if to say that this is normal and this is how she rolls. It's her interpretation of what I say in real time. Looking back, I should have asked if I could record the audio of the session for accuracy. It's very common for people with Asperger's, everyone tells me that they can't read me, people read me the wrong way, people tell me that they can't read me at all and that things I say are miss-interpreted and I am always perceived differently to other people. 
 
 Then we had two non Asperger's people in the sessions (Alex & Bec), **Ruth Selig** would have been able to more easily interpret these people and read these people correctly - it's no wonder this report is totally out of wack. 
 
