@@ -20,7 +20,7 @@ Children should not be separated from their parents unless it is for their own g
 
 More details in the reference link immediately above.
 
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="./blobs/un_PNG20.png"</p>
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="./blobs/un_PNG20.png>"></p>
 
 #### An international agreement for child rights
 

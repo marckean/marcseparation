@@ -25,7 +25,7 @@ Alex is not coping.
 - Charlie tells me Mums plan, expecting me to pay $200 for his birthday, towards a new bike
 - After I question Charlie about the issue with his current bike, he doesn’t need a new bike, he just needs his current bike adjusted, the handle bars can go up.
 
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="250" src="../blobs/coparenting/March42021.jpg"</p>
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="250" src="../blobs/coparenting/March42021.jpg"></p>
 
 ### March 9, 2021 No respect, & comms via the kids
 
@@ -36,7 +36,7 @@ Alex is not coping.
 - Straight after, Alex calls me and abuses me, what did I do, Charlie is in tears and I just hung up on her
 - I find out later on Thursday from Charlie that Alex was with him at the time when he called and it was Alex that hung up on me
 
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="250" src="../blobs/coparenting/March92021.jpg"</p>
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="250" src="../blobs/coparenting/March92021.jpg"></p>
 
 ## Not informing me about kids medical appointments
 
