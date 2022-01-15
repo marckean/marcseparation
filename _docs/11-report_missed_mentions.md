@@ -23,10 +23,6 @@ Whilst in the session with Dr Ruth Selig, there were several things that I menti
 
 Everything I listed [here](/marcseparation/alex_mental_health/), I asked **Ruth Selig** to find out what was happening in Alex's head, her mental state. There's clear evidence of mental issues in the family, but **Ruth Selig** skipped this totally and swept this under the rug. **Ruth Selig** did say to me that "*she has powers from the court*" to find out information, so this is when I asked **Ruth Selig** to find out about Alex's mental state of mind. Something is seriously happening with Alex. 
 
-
-In the last few months before separation, when going to bed, Alex never said goodnight to me
-
-Asked me if I had another partner, this wasn’t mentioned anywhere
 ## Kids table manners
 
 I am very instrumental in teaching the kids good moral and values. I used the example of my father who worked in high profile jobs all his life as CEO of large companies where he had to represent the company with other business people, he understood correct manners. I also mentioned that having good manners is a good reflection on the kids themselves, also the parents and that other people take notice of this. People notice these things, good manners of kids and create good warm opinions of the kids as a result. I said that before separation one of the things I did which I was very proud of, from an early age I taught the kids proper table manners. To this day, the kids still exhibit good table manners and even teach some of their own peers the correct way to use a knife & fork for example.
@@ -53,6 +49,16 @@ However this doesn't stop the kids:
 - Getting into Alex's phone - which I know they can
   - Both kids can get into Alex's phone, they both know Alex's PIN to get into the phone. Alex has never taken this seriously. Kids can then have free rein to look at all Alex's apps signed in as her, watch adult content, read sensitive text messages/emails etc, especially about the court case with their parents. The Kids have always been able to get into Alex's phone, it's always been the case, previously and now. 
 - Being given devices from other people to use
+  
 ### iPad from Bec
 
-Alex's friend Bec (Rebecca) gave
+Alex's friend Bec (Rebecca) gave Charlie an iPad as a gift to use at Alex's place. As Alex and Bec weren't tech savvy, they simply handed it to Charlie and said, "**here you go**". [It's very well documented](https://support.apple.com/en-us/HT2013040), that you can **use parental controls on your child's iPhone, iPad, and iPod touch**. However this wasn't setup, so Charlie has free rein to anything that he wanted including all inappropriate content. What's more, Bec had signed Charlie in applications e.g. **Netflix** & **Disney+** with her account and no kids profiles were setup and no password/PIN protection from the adult content on **Netflix** & **Disney+**. It wasn't until months later that Charlie brought the iPad to my place, I had a look at it and I was shocked to see that my son (aged 10) had access to literally any movie he chose to watch with no protection at all from any inappropriate content. 
+
+This is another example of Alex's hands-off parenting style, leaves it up to Bec (someone else) to sign in with their account on **Netflix** & **Disney+**. It's not Bec's kids, she should just stay out of it. 
+
+Alex doesn't even have an account for **Netflix** & **Disney+** and is using Bec's account instead. As I mentioned, Alex is as she's [living well beyond her means](/marcseparation/child_support/) and simply cannot afford the monthly cost of the streaming services. 
+
+## Other things that were missed
+
+- In the last few months before separation, when going to bed, Alex never said goodnight to me
+- Asked me if I had another partner, this wasn’t mentioned anywhere
