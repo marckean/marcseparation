@@ -35,14 +35,14 @@ FIrstly, let's define what it really means if a kids says they're full and let's
 </audio>
 
 1. I am full, there's no more room in the kids stomach
-2. There's always room for desert
+2. There's always room for dessert
 3. Kids just don't feel like it
 
 Example, Charlie thought he was getting hard and rocky pudding so he said he was full. But as soon as he found out it was chocolate cake all of a sudden he said he was not full. 
 
 Charlie goes onto say that if you offer a kid something and they haven't eaten for 2-3 hours and they say that they're full, it just simply means that they don't feel like it, but if you offered them something better, then they would say that they're not full. But, if they ate 20 mins ago, then they really are full (what adults call full, not what kids call full). 
 
-### Charlie eating four (4) sushi rolls in one siting
+### Charlie eating four (4) sushi rolls in one sitting
 
 In February of 2019, my son was aged 8 and he ate 4 Sushi Rolls (not forced) on his own accord (remember that I myself am 2 meters tall, so technically speaking my kids have catch up and would most likely grow more than their peers, so makes sense that they would consume more food than others in their age group, as they are growing more than other in their age group.):
 
@@ -50,7 +50,7 @@ In February of 2019, my son was aged 8 and he ate 4 Sushi Rolls (not forced) on 
     src="https://www.youtube.com/embed/gmMTAULqgzc?playlist=gmMTAULqgzc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-### Charlie eating five (5) sushi rolls in one siting
+### Charlie eating five (5) sushi rolls in one sitting
 
 Then very recently, we can see that Charlie can also eat 5 sushi rolls in the one sitting - without being force-fed. 
 
@@ -58,7 +58,7 @@ Then very recently, we can see that Charlie can also eat 5 sushi rolls in the on
     src="https://www.youtube.com/embed/kOzZyaFyZ20?playlist=kOzZyaFyZ20&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-### Charlie eating six (6) sushi rolls in one siting, Chloe also broke her own record
+### Charlie eating six (6) sushi rolls in one sitting, Chloe also broke her own record
 
 Charlie broke his own record with 6 sushi rolls in the one sitting, then Chloe also broke her own record (3 rolls and one sushi sandwich). All without being force-fed, they did it on their own accord, I just had to pay the bill. 
 
