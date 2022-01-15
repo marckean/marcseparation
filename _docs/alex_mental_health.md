@@ -45,7 +45,7 @@ Doing extensive research online, knowing Alex from **before** and **after** we s
 Alex has mental issues - the below is a summary of real events, which have been documented at the time of the events happening
 - Alex runs on auto-pilot, her brain is not engaged on things that she's doing
 - Alex runs on subconscious and is not conscious most of the time 
-- The house just about burns down
+- 
 - The house is constantly left unlocked
 
 ### Alex's crap carpark
@@ -58,14 +58,29 @@ On December 16, 2020 look how far out from the gutter that she parked on an alre
 
 When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
 
+### Parking ticked left in machine
 
-Saying stuff which is in-correct, doesn't give me the correct answer
+August 2, 2019 - At Nelson Bay, Alex bought parking ticket from a street parking vending machine across the road from where the car was parked, she then came back to the car and said "**Let's go kids, all done**" but she left the ticket in the machine and didn't put it in the car.
+
+### Puppy poos in the lounge room
+
+2019 - Alex puts the puppy in the lounge room crate on a Saturday night before going to bed, but she doesn’t close the crate door properly, it doesn’t latch. As a result, the puppy gets out and does a poo in the lounge room and does a wee in the hallway.
+
+### The house just about burns down
+
+January 14, 2020 - The kitchen stove was left on from breakfast, I walked into the kitchen at 2.15pm and found it had been left on, the stove was hot and drawing a tone of electricity, I was paying the electricity bill, and the house could have caught fire.
 
 ### The grass that was for sale
+
+#### My statement from the report
+
+![](../blobs/alexmentalhealth/report_grass.png)
 
 I ask Alex "Do we have the money for the grass?"    She says, "Yes"
 I ask where is it, she says "In the office"
 I ask where abouts is it in the office, she says "it'll be dropped off to the office"
+
+It was a constant thing with Alex, she would always be saying stuff which is in-correct, I ask a question, see doesn't give me the correct answer.
 
 ### Private Health Insurance
 
@@ -169,3 +184,53 @@ Instead of being told there was a loose handle and to fix the loose handle in th
 The Stainless Steel Sink Strainer is missing in the sink. I ask Alex and she does't know what happened to it. She looks for it and finds it in the bin. She's gone to shake food scraps out of the Stainless Steel Sink Strainer and in doing so, she's dropped it in there without realising it. Who does this? 
 
 ![](../blobs/alexmentalhealth/drain1.png)
+
+### Kids School Disco, forgets and never answers her phone
+
+Friday night, May 4, 2018 - the kids had a school disco from 5-6pm. Alex was there for the entire time helping out, she got there early and got a park out the front. Meanwhile I was on a train coming home from work. I walked from the train station and phoned Alex on the way to tell her I was coming to the school disco, she picked up the phone. I got in at about 5.25pm and got to the school hall and said hello. As there was 35 minutes left until the disco finished, I decided to go to the shops and get some stuff for the weekend. I asked for Alex's car keys to use the car and told her I would be back by 6pm to pick them up. 
+
+6pm came around and I was back on-time. Problem is, it was kids swap over time with the disco (one year to the next) and I couldn't find a carpark outside, I had to double park on the corner, I had my hazard lights on and illegally parked. So I phoned Alex on her mobile to tell her so she would know I was outside, maybe she was expecting me to come back in again. Problem is, Alex didn't answer her phone. So I kept calling her over and over again constantly, she didn't answer. 10 mins had passed and she finally answered, she was still there at 6.10pm at the disco with the kids, I told her to come out quickly as I was double parked - I then went off at her because she didn't answer her phone constantly, even though she answered it the very first time when I called earlier and plus it was 6pm (the time we agreed that I was due to return).
+
+### Mothers Day
+
+Saturday Night May 12, 2018 - the night before Mothers day, I cooked dinner. Alex had French Champagne & a home cooked dinner. We were sitting there having dinner and all of a sudden at 7.40pm, Alex says it's time for the kids bedtime - kids hadn't even finished dinner. This then brings up the conversation about the kids being allowed to stay up on the weekend.
+
+The night before, Friday night, we're all watching a movie and I fell asleep in front of the TV at about 9pm, Alex wanted to put the kids to bed while I was asleep, but didn't, she said she didn't tell the kids to go to bed because she thought they would say "*Daddy said we would stay up*", even while I was still asleep, she was more scared of the kids giving her grief than being a mother and telling them what to do and tell them go to bed.
+
+### Not rinsing the dishes before putting in the dishwasher, dirty dishes found in the cupboard
+
+On Saturday Night May 12, 2018 - (bearing in mind, Alex is the one who does the dishes every night, cleans up and stacks the dishwasher and puts it on) - The topic comes up about her not doing things properly, when I bring up the fact that it's a constant thing that there's always dirty dishes put away in the cupboard, she says it's a put-down / insult. I say it's not a put-down, it's a fact. the plates, bowls, boards, glasses not being rinsed properly and I find food caked on them on a regular basis - like the bowl I found tonight when I got it out of the cupboard for cooking. I cooked that night.
+
+A short pause, she spins this around and puts it back on me, it's my fault - the way Alex looks at it, even though it's her that cleans up at night, does the dishes and stacks the dishwasher, it's up the person that uses the dish to rinse it, as she basically expects that she can just put the dishes straight in the dishwasher without rinsing, with food left caked on them - whereas everyone knows that you need to rinse dishes before they're put in a dishwasher.
+
+    **Text from me**: I had a Mother’s Day breakfast booked for 9am this morning, but after last night I’m seriously thinking twice going.
+
+    Without yelling and loosing it, if you can help me understand why (if you are the one that cleans the dishes at night and stacks the dishwasher) why is it my fault if food gets left caked on the plates/dishes when they come out of the dishwasher?
+
+    You better hurry up, because I know we’re going to have another fight this morning, you better choose your words carefully and think this through..... your goal, help me to understand the above - hurry
+
+    **Text from Alex**: I’m simply asking you not to blame me for it but to take a photo and text it to me. Every night I work my absolute hardest to have this family functioning around the clock. 
+
+    Losing you temper and saying that I don’t do things properly is not a united front. 
+    I rinse every plate/cup/ bowl- you see me do it and you know this. 
+
+    **Text from me**: Bullshit, no you weren’t, you spun this around 360, you were blaming me for the dirty dishes......... why? 
+    I can see this is going to take several goes for you to answer the question.
+
+    **Text from Alex**: To make you get a taste of what it’s like and how it feels
+
+    **Text from me**: Well you could have simply said OK, it’s my fault, admitted it was your fault and the the fight would have ended there......... It wouldn’t have escalated like it did. You turning it around simply put fuel on the fire 🔥 to an already heated conversation in front of the kids, it extended the conversation 
+
+    Conversation could have been over and done in one minute, instead because you were giving me taste of how it feels, it erupted to a fight over 30 mins and ruined the night.
+
+    **Text from Alex**: I don’t deserve to be treated like this. I don’t yell and go off at you especially in front of the kids. You belittling me and it’s never going to stop as the more I do for the family the more accountable I am if things aren’t perfect. I spent 4 hours yesterday cleaning and making this household run smoothly. A little appreciation rather than criticism would go a long way
+
+    Text from me: Noted, but still doesn’t change the fact, admit fault where it’s due - last nights fighting episode could have been fully avoided only if you did this, instead you spun it around 360 and started some weird ass blame game back on me which made no sense at all - what, to give me a taste of it? Really, in front of the kids? Was that the smartest thing you have done? No.......... 
+
+    **Text from Alex**: The agreement was you take a photo. Your anger and shouting/ treating me is becoming the ‘normal’ in our relationship. Don’t yell- point noted.
+
+    Our imperfections will happen again it’s how we deal with it that matters especially in front of the kids
+
+    **Text from me**: It’s bullshit, I didn’t yell at you, at the very start of the conversation last night, I simply stated that there was food left caked in the bowl, I said it’s a ‘fact’ that you don’t rinse the dishes properly- this wasn’t yelling at you. It’s what happened next started the screaming match, you spinning it around. At this point you could have chosen to leave it at that, instead you took it further - you knew things would erupt 
+	
+    **Text from Alex**: I’m obviously not going to share with you how you made me feel as I know what your response will be. As agreed - text me a photo and don’t make accusations because I will always defend myself. 

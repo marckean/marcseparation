@@ -29,3 +29,7 @@ Asked me if I had another partner, this wasn’t mentioned anywhere
 
 I am very instrumental in teaching the kids moral and values. I used the example of my father who worked in high profile jobs all his life as CEO of large companies where he had to represent the company with other business people, he understood correct manners. I also mentioned that having good manners is a good reflection on the kids themselves, also the parents and that other people take notice of this. I said that before separation one of the things I did which I was very proud of, from an early age I taught the kids table manners. To this day, the kids still exhibit good table manners and even teach some of their peers. 
 
+## Chloe dropped face first onto a tiled floor
+
+As per [this other section](/marcseparation/alex_mental_health/#chloe-dropped-face-first-onto-a-tiled-floor), this too was missed. When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
+
