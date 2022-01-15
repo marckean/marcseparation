@@ -44,7 +44,7 @@ At the start of the session with **Ruth Selig**, I asked her how things would ru
 
 Then we had two non Asperger's people in the sessions (Alex & Bec), **Ruth Selig** would have been able to more easily interpret these people and read these people correctly - it's no wonder this report is totally out of wack. 
 
-Report writers need to remain neutral and leave all emotions out completely with these things - not the case here. There's a tone of things incorrect and this site is here to bring it all out in the open by using photos, audio and videos - media in these formats doesn't lie.
+Report writers need to remain neutral and leave all emotions out completely with these things - not the case here. There's a ton of things incorrect and this site is here to bring it all out in the open by using photos, audio and videos - media in these formats doesn't lie.
 
 **Note:** **I love my kids to bits**, why else would I go to so much trouble in putting this site together.
 ### How to use this site
