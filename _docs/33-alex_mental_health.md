@@ -10,28 +10,23 @@ toc: true
 
 Alex is not coping and/or has mental issues or a mix of both. We know that there has definitely been a history of mental health in both Alex's father and sister, with both experiencing Bipolar disorder. There was a number of idiotic things that Alex did while we were living together and as for the cause, part of it I put it down to that she's not happy in our relationship, she wasn't coping (one reason why we separated) as she wasn't happy at all.
 
-However since separation and even with me removed from the picture, in theory Alex should be much happier now and in turn, cope better. However, this is not the case and Alex is still doing idiotic things, making stupid mistakes and mishaps over and over again. Further below are examples of these idiotic things which she did both **before** and **after** we separated. 
-
-
-
-
-
-However we know that the [report writer told me that she would be putting in the report that Julia committed suicide.](/marcseparation/julia_spence_mental_health/#what-the-report-writer-told-me-in-person), but even this wasn't mentioned in the report. 
-
-
-
-
+However since separation and even with me removed from the picture, in theory Alex should be much happier now and in turn, cope better. However, this is not the case and Alex is still doing idiotic things, making stupid mistakes and mishaps over and over again. Further below are examples of these stupid and idiotic things which she did both **before** and **after** we separated. 
 
 As mentioned in the report, I told the report writer that it's as if Alex is running on autopilot and lot living in the present moment.
 
 ![](../blobs/alexmentalhealth/report_alex_not_there.jpg)
 
+Alex has mental issues - the below is a summary of real events, which have been documented at the time of the events happening
+
+- Alex runs on auto-pilot, her brain is not engaged on things that she's doing
+- Alex runs on subconscious and is not conscious most of the time 
+
 Doing extensive research online, knowing Alex from **before** and **after** we separated, it seems that she may be suffering from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) its as though she's disconnected from both her body and the world around. These feelings of detachment are the mind’s way of coping in situations of extreme stress. And stress is exactly what Alex was going through before our separation, and now it may seem that this hasn't changed. depersonalisation disorder is meant to be only temporary, however, when these feelings keep occurring or never completely go away and interfere with ones ability to function, it can also be considered as **depersonalization-derealization** disorder. This disorder is more common in people who've had **traumatic experiences**.
 
-#### Alex has experiences traumatic experiences
+#### Alex has experienced traumatic experiences
 
 - Her mother died of Motor neurone disease (MND)
-- Alex experienced a tremendous amount of stress in the last 4 years of our relationship
+- Alex experienced a tremendous amount of stress in the last 4 years of our relationship before we split
 
 ### What we know of the current situation:
 
@@ -41,12 +36,13 @@ Doing extensive research online, knowing Alex from **before** and **after** we s
 - 
 
 
+### The house is constantly left unlocked
 
-Alex has mental issues - the below is a summary of real events, which have been documented at the time of the events happening
-- Alex runs on auto-pilot, her brain is not engaged on things that she's doing
-- Alex runs on subconscious and is not conscious most of the time 
-- 
-- The house is constantly left unlocked
+Before separation in Nov 2019, Alex used to always leave the matrimonial home unlocked. I would come home from work, no one was home and constantly I would find a door unlocked. Can just walk straight in. Even now it's still happening, a conversation with my son Charlie & Chloe confirm this is still the case. Alex is so mentally affected, that even my own son **Charlie** has to step up and remind Alex to lock the house. 
+
+<audio src="../audio/Alex_not_locking_the_house.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
 
 ### Alex's crap carpark
 

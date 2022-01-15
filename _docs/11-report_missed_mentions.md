@@ -21,7 +21,7 @@ Whilst in the session with Dr Ruth Selig, there were several things that I menti
 
 I wasn’t an easy person to live with, I just wanted to understand why she’d be doing these things
 
-Alex constantly leave the house unlocked. As the house backs on to bush, this is a security risk to the kids if someone gains access to the house
+
 
 In the last few months before separation, when going to bed, Alex never said goodnight to me
 
