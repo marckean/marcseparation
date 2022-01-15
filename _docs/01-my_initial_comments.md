@@ -79,17 +79,17 @@ This is written by Hillary Hurst Bush, PhD. She is a clinical psychologist with 
 
 **Hillary Hurst Bush** says:
 
-Based on my personal and professional experiences, there are some ways in which being on the autism spectrum can make parenting uniquely challenging: 
-
-- **Navigating shifts in relationships with a partner/co-parent**. Raising a child involves many new responsibilities, and old patterns, schedules, and routines may no longer be feasible. This kind of adjustment can be very hard for parents on the autism spectrum. 
-- **Nuanced communication with a lot of new relations**. Raising a child involves interacting and forming relationships with many new people, including the child’s teachers, doctors, friends (and their parents), and other parents in less structured situations, like at the park. Managing these interactions and feeling confident in them can be challenging for parents on the autism spectrum.
-- **Highly sensory experiences**. Some aspects of child rearing are very demanding on the senses, including certain toys, foods, smells, and dirty diapers. What is “unpleasant” for someone who does not have autism can be “unbearable” or even physically painful for someone who does. 
-
-Despite these challenges, there are some important ways in which being on the autism spectrum can be an asset in parenting: 
-
-- **Structure, routine, and predictability**. Children often thrive when they have these things, and autistic parents are often well-equipped to provide them.
-- **Intense, passionate interests**. It is important for children to have models of adults pursuing their interests and passions. While I did not share all my dad’s interests, there are some activities, like fishing and skeet shooting, that we enjoyed together. In fact, these are some of the happiest memories I have with my dad. And, it is cool that they fall outside traditional gender expectations.
-- **Exposure to neurodiversity and acceptance of people who are different**. Research suggests that some siblings of people with ASD benefit from these unique relationships, and more is needed to know if this is true for children of people with ASD too. 
+> Based on my personal and professional experiences, there are some ways in which being on the autism spectrum can make parenting uniquely challenging: 
+> 
+> - **Navigating shifts in relationships with a partner/co-parent**. Raising a child involves many new responsibilities, and old patterns, schedules, and routines may no longer be feasible. This kind of adjustment can be very hard for parents on the autism spectrum. 
+> - **Nuanced communication with a lot of new relations**. Raising a child involves interacting and forming relationships with many new people, including the child’s teachers, doctors, friends (and their parents), and other parents in less structured situations, like at the park. Managing these interactions and feeling confident in them can be challenging for parents on the autism spectrum.
+> - **Highly sensory experiences**. Some aspects of child rearing are very demanding on the senses, including certain toys, foods, smells, and dirty diapers. What is “unpleasant” for someone who does not have autism can be “unbearable” or even physically painful for someone who does. 
+> 
+> Despite these challenges, there are some important ways in which being on the autism spectrum can be an asset in parenting: 
+> 
+> - **Structure, routine, and predictability**. Children often thrive when they have these things, and autistic parents are often well-equipped to provide them.
+> - **Intense, passionate interests**. It is important for children to have models of adults pursuing their interests and passions. While I did not share all my dad’s interests, there are some activities, like fishing and skeet shooting, that we enjoyed together. In fact, these are some of the happiest memories I have with my dad. And, it is cool that they fall outside traditional gender expectations.
+> - **Exposure to neurodiversity and acceptance of people who are different**. Research suggests that some siblings of people with ASD benefit from these unique relationships, and more is needed to know if this is true for children of people with ASD too. 
 
 
 ## Scientific research for shared parenting
