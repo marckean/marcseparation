@@ -33,3 +33,10 @@ I am very instrumental in teaching the kids moral and values. I used the example
 
 As per [this other section](/marcseparation/alex_mental_health/#chloe-dropped-face-first-onto-a-tiled-floor), this too was missed. When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
 
+
+## Parental Controls on devices
+
+I mentioned this in the session to Ruth, and this was missed totally, as I understand that it would have gone over her head, too complicated to put in a report. As per [my previous comments](/marcseparation/#the-family-report---why-were-here), 
+### iPad from Bec
+
+Alex's friend Bec (Rebecca) gave
