@@ -46,7 +46,7 @@ Since separation, the kids and Dad have done many fun things together.
 
 - I am a fun and the kids love being with me & their extended paternal family
 - Photos all of which since separation (since Nov 2019)
-- Kids are more than happy and at piece with themselves
+- Kids are more than happy and at peace with themselves
 
 |  |  |
 | ----------- | ----------- |
