@@ -52,7 +52,7 @@ Why else did she and her friend Bec go to so much trouble and tell the report wr
 Remember that I separated with Alex, not the kids. I love my kids to bits, why else would I go to so much trouble in putting this site together. I don't have an issue spending money on the kids, but I do have an issue spending money for the kids from behind the scenes via Alex, [I don't even get the pleasure of seeing my children benefit from the spending](/appendix_5050_custody/#7-financial-resources-are-shared-naturally).
 
 
-### Matrimonial home valuation
+### Matrimonial home valuation, Alex blocking real valuations
 
 End of 2021, we all knew that house prices in Sydney went through the roof. This includes the matrimonial home at 5 Stratford close, Asquith. 
 
@@ -82,7 +82,11 @@ However the last one, as you can see dated September 2021, in comparison with th
 
 ![](../blobs/childsupport/house_valuation1.png)
 
-Alex knew full well that the house had gone up in value in recent months, and by how much. It is also in Alex's best interest to have the lowest house valuation as possible, as it's always been Alex's plan to buy me out. The lower the valuation, the lower amount that she needs to pay me. 
+As Alex arranged **Boris Vondros** from **Metroval Valuations** to do the first two valuations, we tried to arrange a valuer ourselves. Alex refused to let our valuer gain access to the property, and for very good reason.
+
+Alex knew full well that the house had gone up in value in recent months, and by how much. It is also in Alex's best interest to have the lowest house valuation as possible, as it's always been Alex's plan to buy me out. The lower the valuation, the lower amount that she needs to pay me. Alex wanted the lowest possible valuation figure for the house. 
+
+Alex also mentioned to me on the phone very recently (January 15, 2022) that she'd go ahead and organise another valuation for the home and get them to value the house at $1.5 million. 
 
 #### Why is Alex so desperate to buy me out?
 
