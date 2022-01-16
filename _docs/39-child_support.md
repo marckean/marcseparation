@@ -50,3 +50,42 @@ Alex is milking the system to her own personal advantage - not in the kids best 
 Why else did she and her friend Bec go to so much trouble and tell the report writer so much about me being a bad Dad. The report writer, also female, listened to them and was sold on what they both had to say.
 
 Remember that I separated with Alex, not the kids. I love my kids to bits, why else would I go to so much trouble in putting this site together. I don't have an issue spending money on the kids, but I do have an issue spending money for the kids from behind the scenes via Alex, [I don't even get the pleasure of seeing my children benefit from the spending](/appendix_5050_custody/#7-financial-resources-are-shared-naturally).
+
+
+### Matrimonial home valuation
+
+End of 2021 as we all knew that house prices in Sydney were going the roof. 
+
+#### June 28, 2021
+
+Valuation of the home as per [http://realestate.com.au](http://realestate.com.au)
+
+![](../blobs/childsupport/house_valuation3.png)
+
+#### October 4, 2021
+
+Valuation of the home as per [http://realestate.com.au](http://realestate.com.au)
+
+![](../blobs/childsupport/house_valuation2.png)
+
+We know that [http://realestate.com.au](http://realestate.com.au) is fairly reputable and trusted with house valuations. and As per previous **official** valuations on the home, we wanted to do another valuation in September 2021.
+
+Below is the history of all the **official** valuations on the home:
+
+| Date | Name | Vendor | Valuation |
+| ----------- | ----------- | ----------- | ----------- |
+| September 12, 2020 | Boris Vondros | Metroval Valuations | $1,290,000 |
+| May 24, 2021 | Boris Vondros | Metroval Valuations | $1,350,000 |
+| September 16, 2021 | Peter Craig | Cityside Valuers | $1,700,000 |
+
+However the last one, as you can see dated September 2021, in comparison with the house values from [http://realestate.com.au](http://realestate.com.au), you can see that its a little off, due to the fact that the home valuer **Peter Craig** couldn't gain access to the house. 
+
+![](../blobs/childsupport/house_valuation1.png)
+
+Alex knew full well that the house had gone up in value in recent months, and by how much. It is also in Alex's best interest to have the lowest house valuation as possible, as it's always been Alex's plan to buy me out. The lower the valuation, the lower amount that she needs to pay me. 
+
+#### Why is Alex so desperate to buy me out?
+
+We know that as Alex is already in the house, even though it's temporary with no guarantee of her remaining in the house, she doesn't want to move out, it's hard to move out as for her, so much is attached to that house both emotionally and physically. I didn't to move out either back in January 2020, I had no choice and [I reluctantly needed to move into rental apartments](/marcseparation/my_initial_comments/#unfairly-judged-based-on-current-time-with-the-kids) and suffered so much with cabin fever and having to work & live from the same little space each and every day. Alex hasn't yet come to terms and excepted that she needs to move on with her life and this most likely would mean a new home. She's living in this fake dreamland right now.
+
+Alex is in this [holding pattern](/marcseparation/co_parenting/) clutching at straws in this temporary phase of her life and living in thr matrimonial home until a final settlement happens. There's no guarantee that Alex can keep the house, Alex knows this. Alex is trying to do everything she can to sabotage, disrupt and delay the legal proceedings so she can stay in the house much longer and to try and get the best possible result for her. 
