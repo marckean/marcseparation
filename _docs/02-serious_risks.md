@@ -50,9 +50,17 @@ This information came from other pages on this exact same site. For more details
 
 ## The matrimonial home is constantly left unlocked
 
-The house is constantly left unlocked.
+As I have documented very clearly on this site, [the house is constantly left unlocked](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked) The house backs onto bush, as you can see from this aerial view of the property:
 
-[g](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked)
+![](../blobs/seriousrisks/aerial_property_stratford.png)
+
+Not once, not twice, but many times the house is being left unlocked by Alex before she and I separated, and even now 2 years after separation. She constantly leave the house unlocked. It's still happening as you can see [here](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked) with my most recent video taken in January 2022. 
+
+Years ago when I was living in the house, the Tennis club at the back of the property got broken into, this will be on record with the Police. At night time it's pitch black at the back of the property and anyone can linger in the area and gain access to the home. This is why when I was living there I had security cameras installed to help with our security, this relates to the other absurd episode about the [Breast Feeding Spy Allegation](/marcseparation/breast_feeding_spy_allegation/), now you can understand the reasons why I installed the security cameras. 
+
+However, post separation, I removed the security cameras as Alex didn't want them there, she thought that I see things she didn't want me to see. 
+
+In relation to the house being unlocked all the time, you can here my son who is concerned about his safety:
 
 <audio src="../audio/Alex_not_locking_the_house_Charlie_not_comfortable.mp3" type="audio/mpeg" controls>
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
