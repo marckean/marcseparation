@@ -31,11 +31,20 @@ Alex has lost total control over the maintenance of the home.
 
 ### The house is totally not safe
 
-This is on the top balcony at the back of the house, kids can fall down through this, land on the ground and could seriously injure themselves of whats worse, kill themselves. 
+This is railing of the top balcony at the back of the house, kids can fall down through this, land on the ground and could seriously injure themselves of whats worse, kill themselves. 
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/Pb2Wtx18Zj8?playlist=Pb2Wtx18Zj8&loop=1&start=81&end=89&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
+
+#### The railing is still not fixed
+
+On January 16, 2022, I was back at the house and noticed that not the railing is still not fixed and has gotten worse, it's the entire length of the railing, the wire has totally ome out. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/rW6g---2QLw?playlist=rW6g---2QLw&loop=1&start=81&end=89&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
 
 The current living conditions for the home are contrary to that of the report. 
 

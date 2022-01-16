@@ -75,6 +75,7 @@ January 14, 2020 - The kitchen stove was left on from breakfast, I walked into t
 
 ## The grass that was for sale
 
+![](../blobs/alexmentalhealth/grass1.jpg)
 ### My statement from the report
 
 ![](../blobs/alexmentalhealth/report_grass.png)
