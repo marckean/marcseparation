@@ -44,6 +44,16 @@ Before separation in Nov 2019, Alex used to always leave the matrimonial home un
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
 </audio>
 
+#### Matrimonial home totally unlocked January 16, 2022
+
+I was due to drop the kids back on this day. So, I went back to the house, Alex wasn't there, the kids don't have keys, however they walked straight into the house. The front security screen door and main door was completely **unlocked**, and the back sliding door was also **unlocked**.
+
+The below video is documentation of the event:
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/oS304zLLMuk?playlist=oS304zLLMuk&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
 ### Alex's crap carpark
 
 On December 16, 2020 look how far out from the gutter that she parked on an already narrow street in the middle of school pickup:
