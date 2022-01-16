@@ -51,6 +51,24 @@ The below video is documentation of the event (you can hear Charlie saying "*the
     src="https://www.youtube.com/embed/oS304zLLMuk?playlist=oS304zLLMuk&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+## Alex transferred money to my account
+
+In December 2021, Alex transferred not one amount of money, but two amounts of money to an old bank account in her name that has been part of my portfolio of bank accounts since separation. It was an old joint account that Alex stopped using 2 years ago and hasn't used it since. All my bank accounts are with **Commonwealth Bank**, and all Alex's bank accounts are with **Westpac**. 
+
+### $1,000.00
+
+![](../blobs/alexmentalhealth/money_transfer_1000.png)
+
+### $1,350.00
+
+![](../blobs/alexmentalhealth/money_transfer_1350.png)
+
+These transfers were about an hour apart, I know this as two notifications came through on my **Apple Watch** for each transfer as soon as the transfer took place. The **$1,000.00** transfer amount came through while I was at Westfields Hornsby on this day, then the **$1,350.00** transfer amount came about an hour later when I just got home from Westfields Hornsby.
+
+She didn't do this just once as a mistake, she literally did this twice an hour apart. Who makes a stupid mistake, not once, but twice in the space of an hour? 
+
+This extra proof that Alex is totally not coping, living well beyond her means, up to her eye balls and she's suffering from [depersonalisation disorder](/marcseparation/alex_mental_health/) - as though she’s disconnected from both her body and the world around.
+
 ## Alex's crap carpark
 
 On December 16, 2020 look how far out from the gutter that she parked on an already narrow street in the middle of school pickup:
