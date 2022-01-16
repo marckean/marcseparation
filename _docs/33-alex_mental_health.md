@@ -48,7 +48,7 @@ Before separation in Nov 2019, Alex used to always leave the matrimonial home un
 
 I was due to drop the kids back on this day. So, I went back to the house, Alex wasn't there, the kids don't have keys, however they walked straight into the house. The front security screen door and main door was completely **unlocked**, and the back sliding door was also **unlocked**.
 
-The below video is documentation of the event:
+The below video is documentation of the event (you can hear Charlie saying "*the door's unlocked and she's not even here?*"):
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/oS304zLLMuk?playlist=oS304zLLMuk&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
