@@ -7,7 +7,6 @@ redirect_from:
   - /theme-setup/
 toc: true
 ---
-
 Alex is not coping and/or has mental issues or a mix of both. We know that there has definitely been a history of mental health in both Alex's father and sister, with both experiencing Bipolar disorder. There was a number of idiotic things that Alex did while we were living together and as for the cause, part of it I put it down to that she's not happy in our relationship, she wasn't coping (one reason why we separated) as she wasn't happy at all.
 
 However since separation and even with me removed from the picture, in theory Alex should be much happier now and in turn, cope better. However, this is not the case and Alex is still doing idiotic things, making stupid mistakes and mishaps over and over again. Further below are examples of these stupid and idiotic things which she did both **before** and **after** we separated. 
