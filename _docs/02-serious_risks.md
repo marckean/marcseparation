@@ -50,3 +50,11 @@ This information came from other pages on this exact same site. For more details
 
 ## The matrimonial home is constantly left unlocked
 
+The house is constantly left unlocked.
+
+[g](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked)
+
+<audio src="../audio/Alex_not_locking_the_house_Charlie_not_comfortable.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
