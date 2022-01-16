@@ -3,8 +3,6 @@ title: "Mental health"
 permalink: /alex_mental_health/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
 last_modified_at: 2022-01-17
-redirect_from:
-  - /theme-setup/
 toc: true
 ---
 Alex is not coping and/or has mental issues or a mix of both. We know that there has definitely been a history of mental health in both Alex's father and sister, with both experiencing Bipolar disorder. There was a number of idiotic things that Alex did while we were living together and as for the cause, part of it I put it down to that she's not happy in our relationship, she wasn't coping (one reason why we separated) as she wasn't happy at all.

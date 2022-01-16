@@ -3,8 +3,6 @@ title: "Dad is Fun"
 permalink: /dad_fun/
 excerpt: "How to quickly install and setup Minimal Mistakes for use with GitHub Pages."
 last_modified_at: 2022-01-17
-redirect_from:
-  - /theme-setup/
 toc: true
 ---
 

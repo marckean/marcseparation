@@ -3,8 +3,6 @@ title: "Breast Feeding Spy Allegation"
 permalink: /breast_feeding_spy_allegation/
 excerpt: "Instructions and suggestions for upgrading the theme."
 last_modified_at: 2022-01-17
-redirect_from:
-  - /theme-setup/
 toc: true
 ---
 ## Statements from the report

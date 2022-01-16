@@ -3,8 +3,6 @@ title: "Co-Parenting not working"
 permalink: /co_parenting/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
 last_modified_at: 2022-01-17
-redirect_from:
-  - /theme-setup/
 toc: true
 ---
 The current co-parenting is not working. Alex is under pressure and is not coping, adopting the [hands-off parenting approach](/marcseparation/alex_parenting/#alex-is-never-around) that her own mother took. The 28.6% of the time that I have the kids, there's been on-going health issues with Chloe. 
