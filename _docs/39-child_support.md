@@ -54,7 +54,7 @@ Remember that I separated with Alex, not the kids. I love my kids to bits, why e
 
 ### Matrimonial home valuation
 
-End of 2021 as we all knew that house prices in Sydney were going the roof. 
+End of 2021, we all knew that house prices in Sydney went through the roof. This includes the matrimonial home at 5 Stratford close, Asquith. 
 
 #### June 28, 2021
 
