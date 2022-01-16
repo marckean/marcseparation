@@ -8,6 +8,8 @@ toc: true
 
 [//]: # (margin:top right bottom left)
 
+# TO BE COMPLETED
+
 HOME - 	About Marc Kean – good coverage.   (you have changed the report since this comment was made)
 
 TEACHING THE KIDS LIFE SKILLS -  take out the part about your father – it’s absolutely over the top (Ian agrees)        Just that one sentence deleted is fine.
