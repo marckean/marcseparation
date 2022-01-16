@@ -9,6 +9,8 @@ toc: true
 ---
 ## Statements from the report
 
+![](../blobs/beckids/report_bec_kids.png)
+
 Bec being there for the kids to talk to
 
 iPad parental controls
@@ -16,3 +18,5 @@ iPad parental controls
 Bec naked in front of Charlie
 
 ## My rebuttal
+
+- By default Charlie calls Bec when he can't get hold of his Mum

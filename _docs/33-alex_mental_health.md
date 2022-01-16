@@ -23,12 +23,12 @@ Alex has mental issues - the below is a summary of real events, which have been 
 
 Doing extensive research online, knowing Alex from **before** and **after** we separated, it seems that she may be suffering from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) its as though she's disconnected from both her body and the world around. These feelings of detachment are the mind’s way of coping in situations of extreme stress. And stress is exactly what Alex was going through before our separation, and now it may seem that this hasn't changed. depersonalisation disorder is meant to be only temporary, however, when these feelings keep occurring or never completely go away and interfere with ones ability to function, it can also be considered as **depersonalization-derealization** disorder. This disorder is more common in people who've had **traumatic experiences**.
 
-#### Alex has experienced traumatic experiences
+### Alex has experienced traumatic experiences
 
 - Her mother died of Motor neurone disease (MND)
 - Alex experienced a tremendous amount of stress in the last 4 years of our relationship before we split
 
-### What we know of the current situation:
+## What we know of the current situation:
 
 - Alex is a single Mum in a large home, much bigger than she needs with her and two kids, [the matimonial home is run down](/marcseparation/living_conditions/)
 - [In the report](/marcseparation/report_contradictions/#contradiction-2), Alex says that she goes to the park each afternoon from 3pm, but my daughter Chloe says the opposite
@@ -36,7 +36,7 @@ Doing extensive research online, knowing Alex from **before** and **after** we s
 - 
 
 
-### The house is constantly left unlocked
+## The house is constantly left unlocked
 
 Before separation in Nov 2019, Alex used to always leave the matrimonial home unlocked. I would come home from work, no one was home and constantly I would find a door unlocked. Can just walk straight in. Even now it's still happening, a conversation with my son Charlie & Chloe confirm this is still the case. Alex is so mentally affected, that even my own son **Charlie** has to step up and remind Alex to lock the house. 
 
@@ -44,7 +44,7 @@ Before separation in Nov 2019, Alex used to always leave the matrimonial home un
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
 </audio>
 
-#### Matrimonial home totally unlocked January 16, 2022
+### Matrimonial home totally unlocked January 16, 2022
 
 I was due to drop the kids back on this day. So, I went back to the house, Alex wasn't there, the kids don't have keys, however they walked straight into the house. The front security screen door and main door was completely **unlocked**, and the back sliding door was also **unlocked**.
 
@@ -54,31 +54,31 @@ The below video is documentation of the event (you can hear Charlie saying "*the
     src="https://www.youtube.com/embed/oS304zLLMuk?playlist=oS304zLLMuk&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-### Alex's crap carpark
+## Alex's crap carpark
 
 On December 16, 2020 look how far out from the gutter that she parked on an already narrow street in the middle of school pickup:
 
 ![](../blobs/alexmentalhealth/alex_crap_carpark.png)
 
-### Chloe dropped face first onto a tiled floor
+## Chloe dropped face first onto a tiled floor
 
 When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
 
-### Parking ticked left in machine
+## Parking ticked left in machine
 
 August 2, 2019 - At Nelson Bay, Alex bought parking ticket from a street parking vending machine across the road from where the car was parked, she then came back to the car and said "**Let's go kids, all done**" but she left the ticket in the machine and didn't put it in the car.
 
-### Puppy poos in the lounge room
+## Puppy poos in the lounge room
 
 2019 - Alex puts the puppy in the lounge room crate on a Saturday night before going to bed, but she doesn’t close the crate door properly, it doesn’t latch. As a result, the puppy gets out and does a poo in the lounge room and does a wee in the hallway.
 
-### The house just about burns down
+## The house just about burns down
 
 January 14, 2020 - The kitchen stove was left on from breakfast, I walked into the kitchen at 2.15pm and found it had been left on, the stove was hot and drawing a ton of electricity, I was paying the electricity bill, and the house could have caught fire.
 
-### The grass that was for sale
+## The grass that was for sale
 
-#### My statement from the report
+### My statement from the report
 
 ![](../blobs/alexmentalhealth/report_grass.png)
 
@@ -88,17 +88,17 @@ I ask where abouts is it in the office, she says "it'll be dropped off to the of
 
 It was a constant thing with Alex, she would always be saying stuff which is in-correct, I ask a question, see doesn't give me the correct answer.
 
-### Private Health Insurance
+## Private Health Insurance
 
 Half way through November I asked Alex to cancel the health cover (under her name) cover for her and the kids. Alex paid this using money out of the joint account $1.9K (after separation) she took our money to pay for her health cover, this included cover for both Alex and the kids (I’m not paying for Alex's cover), I asked this same night if she had reversed the health cover and she said YES! She said the money would be back in my account in a couple of days. Just now (2 weeks later) the money is still not back in the account, however the money has been transferred to a completely separate account in her name - which I don't have access to. 
 
-### Sealant in the kitchen
+## Sealant in the kitchen
 
-#### My statement from the report
+### My statement from the report
 
 ![](../blobs/alexmentalhealth/report_silicon.png)
 
-#### More detail
+### More detail
 
 Before Alex and I separated, I noticed water leaking through the kitchen bench through the joins of the granite bench top. So I removed the old sealant, cleaned it, then laid new sealant. After this I also put bright blue tape either side of the wet sealant like a road works warning, that would be easily noticed from the cornet of the eye, so that one would stay well clear of the sealant while it dries. This happened at about 4pm one afternoon. Just after I laid the sealant, I showed Alex how much of a great job it was, a perfect line of sealant, told her not to touch it as it needed to dry, and she acknowledged it.
 
@@ -126,7 +126,7 @@ As evidence, the below are the photos I took, the photos of the sealant being br
 | ![](../blobs/alexmentalhealth/sealant1.png) | ![](../blobs/alexmentalhealth/sealant2.png) |
 | ![](../blobs/alexmentalhealth/sealant3.png) | ![](../blobs/alexmentalhealth/sealant4.png) |
 
-### Tree loppers
+## Tree loppers
 
 After Alex and I separated, and would be about 20 months afterwards. On 03/10/2021, tree loppers came to chop down next-door neighbours' trees alongside fence line pf the matrimonial home on the neighbour's side of the fence.
 
@@ -142,17 +142,17 @@ The next door neighbour **Rolly** send me a screenshot of his correspondence wit
 
 Alex chose to ignore it. 
 
-### Chloe dropped face first onto a tiled floor
+## Chloe dropped face first onto a tiled floor
 
 When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
 
-### Ginger the dog on the back balcony
+## Ginger the dog on the back balcony
 
-#### My statement from the report
+### My statement from the report
 
 ![](../blobs/alexmentalhealth/report_ginger_back_balcony.jpg)
 
-#### More detail
+### More detail
 
 Mum and Dad were here at the time.
 
@@ -170,7 +170,7 @@ It wasn't until later when I threatened to get Chloe into trouble for lying, Ale
 
 **Witness:** My mum was here at the the time and she too witnessed this. 
 
-### Constantly putting non recycling things in the recycling bin
+## Constantly putting non recycling things in the recycling bin
 
 I'm constantly telling her not to put stuff like carpet in the recycling bin such as shoes, clothing or carpet. 
 
@@ -178,65 +178,69 @@ I'm constantly telling her not to put stuff like carpet in the recycling bin suc
 
 I would always find clothing, old shoes etc int he recycling. You can't recycle these things. 
 
-### Screw replacement to bathroom cabinet
+## Screw replacement to bathroom cabinet
 
 Instead of being told there was a loose handle and to fix the loose handle in the bathroom, I find a coat hanger hook that had been placed in the back of the door of the bathroom cupboard as a makeshift screw. I did ask who put it behind the bathroom handle, who put it there? No one owns up, no one tells me that a screw is missing - radio silence from everyone including Alex. 
 
 ![](../blobs/alexmentalhealth/coathangerhook.png)
 
 
-### Stainless Steel Sink Strainer
+## Stainless Steel Sink Strainer
 
 The Stainless Steel Sink Strainer is missing in the sink. I ask Alex and she does't know what happened to it. She looks for it and finds it in the bin. She's gone to shake food scraps out of the Stainless Steel Sink Strainer and in doing so, she's dropped it in there without realising it. Who does this? 
 
 ![](../blobs/alexmentalhealth/drain1.png)
 
-### Kids School Disco, forgets and never answers her phone
+## Kids School Disco, forgets and never answers her phone
 
 Friday night, May 4, 2018 - the kids had a school disco from 5-6pm. Alex was there for the entire time helping out, she got there early and got a park out the front. Meanwhile I was on a train coming home from work. I walked from the train station and phoned Alex on the way to tell her I was coming to the school disco, she picked up the phone. I got in at about 5.25pm and got to the school hall and said hello. As there was 35 minutes left until the disco finished, I decided to go to the shops and get some stuff for the weekend. I asked for Alex's car keys to use the car and told her I would be back by 6pm to pick them up. 
 
 6pm came around and I was back on-time. Problem is, it was kids swap over time with the disco (one year to the next) and I couldn't find a carpark outside, I had to double park on the corner, I had my hazard lights on and illegally parked. So I phoned Alex on her mobile to tell her so she would know I was outside, maybe she was expecting me to come back in again. Problem is, Alex didn't answer her phone. So I kept calling her over and over again constantly, she didn't answer. 10 mins had passed and she finally answered, she was still there at 6.10pm at the disco with the kids, I told her to come out quickly as I was double parked - I then went off at her because she didn't answer her phone constantly, even though she answered it the very first time when I called earlier and plus it was 6pm (the time we agreed that I was due to return).
 
-### Mothers Day
+## Mothers Day
 
 Saturday Night May 12, 2018 - the night before Mothers day, I cooked dinner. Alex had French Champagne & a home cooked dinner. We were sitting there having dinner and all of a sudden at 7.40pm, Alex says it's time for the kids bedtime - kids hadn't even finished dinner. This then brings up the conversation about the kids being allowed to stay up on the weekend.
 
 The night before, Friday night, we're all watching a movie and I fell asleep in front of the TV at about 9pm, Alex wanted to put the kids to bed while I was asleep, but didn't, she said she didn't tell the kids to go to bed because she thought they would say "*Daddy said we would stay up*", even while I was still asleep, she was more scared of the kids giving her grief than being a mother and telling them what to do and tell them go to bed.
 
-### Not rinsing the dishes before putting in the dishwasher, dirty dishes found in the cupboard
+## Not rinsing the dishes before putting in the dishwasher, dirty dishes found in the cupboard
 
 On Saturday Night May 12, 2018 - (bearing in mind, Alex is the one who does the dishes every night, cleans up and stacks the dishwasher and puts it on) - The topic comes up about her not doing things properly, when I bring up the fact that it's a constant thing that there's always dirty dishes put away in the cupboard, she says it's a put-down / insult. I say it's not a put-down, it's a fact. the plates, bowls, boards, glasses not being rinsed properly and I find food caked on them on a regular basis - like the bowl I found tonight when I got it out of the cupboard for cooking. I cooked that night.
 
 A short pause, she spins this around and puts it back on me, it's my fault - the way Alex looks at it, even though it's her that cleans up at night, does the dishes and stacks the dishwasher, it's up the person that uses the dish to rinse it, as she basically expects that she can just put the dishes straight in the dishwasher without rinsing, with food left caked on them - whereas everyone knows that you need to rinse dishes before they're put in a dishwasher.
 
-    **Text from me**: I had a Mother’s Day breakfast booked for 9am this morning, but after last night I’m seriously thinking twice going.
+## Conversation between Alex and I, over text/SMS
 
-    Without yelling and loosing it, if you can help me understand why (if you are the one that cleans the dishes at night and stacks the dishwasher) why is it my fault if food gets left caked on the plates/dishes when they come out of the dishwasher?
+This is before we separated.
 
-    You better hurry up, because I know we’re going to have another fight this morning, you better choose your words carefully and think this through..... your goal, help me to understand the above - hurry
-
-    **Text from Alex**: I’m simply asking you not to blame me for it but to take a photo and text it to me. Every night I work my absolute hardest to have this family functioning around the clock. 
-
-    Losing you temper and saying that I don’t do things properly is not a united front. 
+> **Text from me**: I had a Mother’s Day breakfast booked for 9am this morning, but after last night I’m seriously thinking twice going.
+> 
+> Without yelling and loosing it, if you can help me understand why (if you are the one that cleans the dishes at night and stacks the dishwasher) why is it my fault if food gets left caked on the plates/dishes when they come out of the dishwasher?
+> 
+> You better hurry up, because I know we’re going to have another fight this morning, you better choose your words carefully and think this through..... your goal, help me to understand the above - hurry
+> 
+> **Text from Alex**: I’m simply asking you not to blame me for it but to take a photo and text it to me. Every night I work my absolute hardest to have this family functioning around the clock. 
+> 
+> Losing you temper and saying that I don’t do things properly is not a united front. 
     I rinse every plate/cup/ bowl- you see me do it and you know this. 
-
-    **Text from me**: Bullshit, no you weren’t, you spun this around 360, you were blaming me for the dirty dishes......... why? 
-    I can see this is going to take several goes for you to answer the question.
-
-    **Text from Alex**: To make you get a taste of what it’s like and how it feels
-
-    **Text from me**: Well you could have simply said OK, it’s my fault, admitted it was your fault and the the fight would have ended there......... It wouldn’t have escalated like it did. You turning it around simply put fuel on the fire 🔥 to an already heated conversation in front of the kids, it extended the conversation 
-
-    Conversation could have been over and done in one minute, instead because you were giving me taste of how it feels, it erupted to a fight over 30 mins and ruined the night.
-
-    **Text from Alex**: I don’t deserve to be treated like this. I don’t yell and go off at you especially in front of the kids. You belittling me and it’s never going to stop as the more I do for the family the more accountable I am if things aren’t perfect. I spent 4 hours yesterday cleaning and making this household run smoothly. A little appreciation rather than criticism would go a long way
-
-    Text from me: Noted, but still doesn’t change the fact, admit fault where it’s due - last nights fighting episode could have been fully avoided only if you did this, instead you spun it around 360 and started some weird ass blame game back on me which made no sense at all - what, to give me a taste of it? Really, in front of the kids? Was that the smartest thing you have done? No.......... 
-
-    **Text from Alex**: The agreement was you take a photo. Your anger and shouting/ treating me is becoming the ‘normal’ in our relationship. Don’t yell- point noted.
-
-    Our imperfections will happen again it’s how we deal with it that matters especially in front of the kids
-
-    **Text from me**: It’s bullshit, I didn’t yell at you, at the very start of the conversation last night, I simply stated that there was food left caked in the bowl, I said it’s a ‘fact’ that you don’t rinse the dishes properly- this wasn’t yelling at you. It’s what happened next started the screaming match, you spinning it around. At this point you could have chosen to leave it at that, instead you took it further - you knew things would erupt 
-	
-    **Text from Alex**: I’m obviously not going to share with you how you made me feel as I know what your response will be. As agreed - text me a photo and don’t make accusations because I will always defend myself. 
+> 
+> **Text from me**: Bullshit, no you weren’t, you spun this around 360, you were blaming me for the dirty dishes......... why? 
+> I can see this is going to take several goes for you to answer the question.
+> 
+> **Text from Alex**: To make you get a taste of what it’s like and how it feels
+> 
+> **Text from me**: Well you could have simply said OK, it’s my fault, admitted it was your fault and the the fight would have ended there......... It wouldn’t have escalated like it did. You turning it around simply put fuel on the fire 🔥 to an already heated conversation in front of the kids, it extended the conversation 
+> 
+> Conversation could have been over and done in one minute, instead because you were giving me taste of how it feels, it erupted to a fight over 30 mins and ruined the night.
+> 
+> **Text from Alex**: I don’t deserve to be treated like this. I don’t yell and go off at you especially in front of the kids. You belittling me and it’s never going to stop as the more I do for the family the more accountable I am if things aren’t perfect. I spent 4 hours yesterday cleaning and making this household run smoothly. A little appreciation rather than criticism would go a long way
+> 
+> Text from me: Noted, but still doesn’t change the fact, admit fault where it’s due - last nights fighting episode could have been fully avoided only if you did this, instead you spun it around 360 and started some weird ass blame game back on me which made no sense at all - what, to give me a taste of it? Really, in front of the kids? Was that the smartest thing you have done? No.......... 
+> 
+> **Text from Alex**: The agreement was you take a photo. Your anger and shouting/ treating me is becoming the ‘normal’ in our relationship. Don’t yell- point noted.
+> 
+> Our imperfections will happen again it’s how we deal with it that matters especially in front of the kids
+> 
+> **Text from me**: It’s bullshit, I didn’t yell at you, at the very start of the conversation last night, I simply stated that there was food left caked in the bowl, I said it’s a ‘fact’ that you don’t rinse the dishes properly- this wasn’t yelling at you. It’s what happened next started the screaming match, you spinning it around. At this point you could have chosen to leave it at that, instead you took it further - you knew things would erupt 
+> 
+> **Text from Alex**: I’m obviously not going to share with you how you made me feel as I know what your response will be. As agreed - text me a photo and don’t make accusations because I will always defend myself. 
