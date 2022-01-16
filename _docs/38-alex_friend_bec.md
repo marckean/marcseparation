@@ -23,3 +23,15 @@ Makes me sick that Rebecca Illis thinks that she can simply step in and be a sig
 
 - Bec is a smoker, and has been a smoker ever since I first met her back in 2008. Bec even told me that she gave up smoking cigarettes at one stage, every time she got the urge to smoke, she'd masturbate instead. This is exactly what she told me.
   - To my knowledge now, via the kids, I understand that Bec still smokes and it worries me as being a significant figure in my kids lives right now, the kids are subjected to this behaviour. 
+
+### Evidence
+
+This video that I found on my son's Charlie's phone from December 24, 2021 (very recently). It shows Alex's friend Bec, talking about herself in the third person, but you will also notice that she's there with a packet of cigarettes to the left of Bec, and Bec is holding a cigarette in her hand, and what's more, comfortably & casually referring to herself, her daughter Izzy, Alex, Charlie & Chloe as "***Family***".
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/1DrgiEB1QRE?playlist=1DrgiEB1QRE&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+The exact same time, there's my daughter Chloe with Bec, Izzy, Alex & Charlie and doesn't look happy at all. Chloe looks totally uncomfortable. Of course she would hearing things like this is her new "***Family***" all the time. Of course it would confuse my kids, as me being the Dad that Chloe loves so much is not there. Bec and Izzy is NOT "***Family***", they are just best friends of Alex, this DOES NOT class them as "***Family***". 
+
+![](../blobs/beckids/chloe_with_bec.png)

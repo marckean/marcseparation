@@ -47,3 +47,6 @@ This information came from other pages on this exact same site. For more details
 - [Platform for European Fathers (PEF)](/marcseparation/platform_for_european_fathers/)
 - [Scientific research for shared parenting](/marcseparation/my_initial_comments/#scientific-research-for-shared-parenting)
 - [Nielsen’s Research: Divorce & Shared Parenting](/marcseparation/appendix_nielsens_research/)
+
+## The matrimonial home is constantly left unlocked
+
