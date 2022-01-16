@@ -2,7 +2,7 @@
 title: "Living Conditions"
 permalink: /living_conditions/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2022-01-06
+last_modified_at: 2022-01-17
 redirect_from:
   - /theme-setup/
 toc: true
