@@ -54,7 +54,7 @@ As I have documented very clearly on this site, [the house is constantly left un
 
 ![](../blobs/seriousrisks/aerial_property_stratford.png)
 
-Not once, not twice, but many times the house is being left unlocked by Alex before she and I separated, and even now 2 years after separation. She constantly leave the house unlocked. It's still happening as you can see [here](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked) with my most recent video taken in January 2022. 
+Not once, not twice, but many times the house is being left unlocked by Alex before she and I separated, and even now 2 years after separation. She constantly leaves the house unlocked. It's still happening as you can see [here](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked) with my most recent video taken in January 2022. 
 
 Years ago when I was living in the house, the Tennis club at the back of the property got broken into, this will be on record with the Police. At night time it's pitch black at the back of the property and anyone can linger in the area and gain access to the home. This is why when I was living there I had security cameras installed to help with our security, this relates to the other absurd episode about the [Breast Feeding Spy Allegation](/marcseparation/breast_feeding_spy_allegation/), now you can understand the reasons why I installed the security cameras. 
 
