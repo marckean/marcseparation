@@ -52,6 +52,8 @@ There are many errors in this report. Like I was saying just above, someone's in
 
 You need to seriously question the credibility of this report writer. 
 
+As the audio of the sessions weren't recorded digitally or analog, there's no way to prove the accuracy of anything in the report.
+
 ![report_contradictions_sat_4](./blobs/reportcontradictions/report_contradictions_sat_4.png)
 
 - This is one is totally incorrect as **Rebecca** has no family relation at all with Andrew Kyngdon.
