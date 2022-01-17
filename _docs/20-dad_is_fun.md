@@ -12,6 +12,8 @@ toc: true
     src="https://www.youtube.com/embed/H4vi8ATgJgw?playlist=H4vi8ATgJgw&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+This is both Charlie & Chloe pushing me around on the spinning thing at the park. We all loved it so much. 
+
 ## Statements from the report
 
 The report contained the following:
