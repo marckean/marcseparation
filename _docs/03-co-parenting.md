@@ -50,11 +50,11 @@ Alex is not coping.
 
 | February 1, 2021 | March 12, 2021 |
 | ----------- | ----------- |
-| <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments1.jpg"></p> | Doesn’t tell me in advance about the Charlie’s optometrist visit <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments2.jpg"></p> |
+| <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments1.jpg"> | Doesn’t tell me in advance about the Charlie’s optometrist visit <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments2.jpg"> |
 
 | November 18, 2020 | March 23, 2021 |
 | ----------- | ----------- |
-| <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments3.png"></p> | I emailed this to the dentist and knew of the kids dentist appointment on said date, but Alex never tells me about this appointment. <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/coparenting/kids_medical_appointments4.png"></p> |
+| <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments3.png"> | I emailed this to the dentist and knew of the kids dentist appointment on said date, but Alex never tells me about this appointment. <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/coparenting/kids_medical_appointments4.png"> |
 
 
 | October 2021 |
@@ -69,4 +69,4 @@ Alex is not coping.
 
 | Not informing me about kids being out of school |
 | ----------- |
-| Julia Spence (Alex’s sister) had her funeral out of town (in Bowral) Tuesday April 20, 2021 and failed to let me know as per section 20 of the parenting order (below). <p> Alex took the kids out of school for two days. <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_school_absences.png"></p> |
+| Julia Spence (Alex’s sister) had her funeral out of town (in Bowral) Tuesday April 20, 2021 and failed to let me know as per section 20 of the parenting order (below). <p> Alex took the kids out of school for two days. <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_school_absences.png"> |
