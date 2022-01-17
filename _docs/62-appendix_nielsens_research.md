@@ -6,9 +6,13 @@ last_modified_at: 2022-01-17
 toc: true
 ---
 
-Source [here](https://nielsen.sites.wfu.edu/divorce-shared-parenting/research/)
+## About
 
 This is from **Dr. Linda Nielsen** who over the past 30 years, become an **internationally recognised expert on father-daughter relationships** and on **shared parenting** (joint physical custody) for children of divorce. See the [about section](https://nielsen.sites.wfu.edu/#about) for more details.
+
+## Research
+
+Source [here](https://nielsen.sites.wfu.edu/divorce-shared-parenting/research/)
 
 Nielsen’s research debunks many popular, but false and damaging, beliefs about fathers and fathering after parents separate. As her research shows…
 
