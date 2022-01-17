@@ -6,11 +6,13 @@ last_modified_at: 2022-01-17
 toc: true
 ---
 
-Ssource [here](https://nielsen.sites.wfu.edu/divorce-shared-parenting/research/) 
+Source [here](https://nielsen.sites.wfu.edu/divorce-shared-parenting/research/)
+
+This is from **Dr. Linda Nielsen** who over the past 30 years, become an **internationally recognised expert on father-daughter relationships** and on **shared parenting** (joint physical custody) for children of divorce. See the [about section](https://nielsen.sites.wfu.edu/#about) for more details.
 
 Nielsen’s research debunks many popular, but false and damaging, beliefs about fathers and fathering after parents separate. As her research shows…
 
-- Children who live primarily with their mothers have worse emotional, physical, academic, and behavioral outcomes than children who live with their fathers 35%-50% time in a shared parenting custody arrangement.  
+- Children who live primarily with their mothers have worse emotional, physical, academic, and behavioural outcomes than children who live with their fathers 35%-50% time in a shared parenting custody arrangement.  
   
 - Shared parenting children have better outcomes even when their parents do not have a cooperative, friendly relationship and even when one parent initially opposed the shared parenting custody plan.
   
