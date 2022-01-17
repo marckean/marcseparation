@@ -25,17 +25,15 @@ However, this will give you a good idea that as Alex has remain in the matrimoni
 
 #### Mother's place
 
-Charlie
+##### Charlie's room
 
 ![](../blobs/livingcomparisons/Alex_CharlieBedroom1.png)
 
-Chloe
+###### Chloe's room
 
 ![](../blobs/livingcomparisons/Alex_ChloeBedroom1.png)
 
-### Chloe's bedroom
-
-#### Mother's place
+<br>
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/UoELU1q8RO4?playlist=UoELU1q8RO4&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
@@ -72,6 +70,7 @@ Chloe
 #### Fathers's place
 
 ![](../blobs/livingcomparisons/dad_master_bedroom.png)
+
 ---------------------------------------------------------------
 ---------------------------------------------------------------
 
@@ -83,9 +82,10 @@ Chloe
     src="https://www.youtube.com/embed/LsX5zrnutXY?playlist=LsX5zrnutXY&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-#### Fathers's place
+#### Father's place
 
 ![](../blobs/livingcomparisons/dad_bathroom1.png)
+
 ---------------------------------------------------------------
 ---------------------------------------------------------------
 
@@ -97,9 +97,10 @@ Chloe
     src="https://www.youtube.com/embed/MlCafbIy4gw?playlist=MlCafbIy4gw&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-#### Fathers's place
+#### Father's place
 
 ![](../blobs/livingcomparisons/dad_ensuite.png)
+
 ---------------------------------------------------------------
 ---------------------------------------------------------------
 
@@ -137,7 +138,7 @@ The father's place doesn't have a separate lounge, it's shown further above as p
     src="https://www.youtube.com/embed/sMs-OCUwgAE?playlist=sMs-OCUwgAE&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-#### Fathers's place
+#### Father's place
 
 ![](../blobs/livingcomparisons/dad_laundry.png)
 
@@ -163,12 +164,6 @@ The father's place doesn't have a separate lounge, it's shown further above as p
     src="https://www.youtube.com/embed/orExK3hnZrQ?playlist=orExK3hnZrQ&loop=1&start=31&end=41&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-
-
-
-
-
-
 ### General living
 
 #### Mother's place
@@ -185,7 +180,7 @@ I take pride on keeping places clean to a good standard. As it was my job to mos
     src="https://www.youtube.com/embed/fEc_OpXdne8?playlist=fEc_OpXdne8&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-#### Fathers's place
+#### Father's place
 
 My **temporary** place at the moment, this is the outside wrap around balcony. 
 
