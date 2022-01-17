@@ -48,7 +48,7 @@ Kids to excited at my place...
     src="https://www.youtube.com/embed/HBVIzwhJitw?playlist=HBVIzwhJitw&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-Kids are faking this, but having so much fun together!
+Of course the kids are faking this, but they're having so much fun together!
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/Zqry3yZ9eJg?playlist=Zqry3yZ9eJg&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
@@ -56,11 +56,15 @@ Kids are faking this, but having so much fun together!
 
 ### Australia Zoo
 
+December 2021, the paternal grandfather, myself and the kids went to Australia Zoo for the day. 
+
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/O8NhnRvIjVM?playlist=O8NhnRvIjVM&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
 ### Big Boing, Birtinya, QLD
+
+December 2021, the kids and I went to Big Boing for the day. Chloe literally twisted my arm, she so desperately wanted me to jump & climb with them. If it wasn't for my [personal training sessions](/marcseparation/dad_kids_sport/#my-rebuttal), I would have struggled. 
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/R1dAO4jOdlk?playlist=R1dAO4jOdlk&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
@@ -114,9 +118,9 @@ A fun activity and challenge as a family, to build a gingerbread house. We all t
     src="https://www.youtube.com/embed/bplzhkNkYdA?playlist=bplzhkNkYdA&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-### Boss Day
+### Yes Day
 
-Similar to the movie of the same name. I gave the kids points for doing jobs at my place. Chloe managed to get enough points to have her very own **boss day** - she was the boss for this very one day. So it was off to the shops, as this is what she wanted to do.
+Similar to the [movie of the same name](https://www.youtube.com/watch?v=Y-3Vr8Ut8d0). I gave the kids points for doing jobs at my place. Chloe managed to get enough points to have her very own **yes day** - she was the boss for this very one day. So it was off to the shops, as this is what she wanted to do.
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/weHhTMzBIls?playlist=weHhTMzBIls&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
