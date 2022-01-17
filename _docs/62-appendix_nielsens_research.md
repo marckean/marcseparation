@@ -8,7 +8,7 @@ toc: true
 
 ## About
 
-This is from **Dr. Linda Nielsen** who over the past 30 years, become an **internationally recognised expert on father-daughter relationships** and on **shared parenting** (joint physical custody) for children of divorce. See the [about section](https://nielsen.sites.wfu.edu/#about) for more details.
+This is from **Dr. Linda Nielsen** who over the past 30 years has become an **internationally recognised expert on father-daughter relationships** and on **shared parenting** (joint physical custody) for children of divorce. See the [about section](https://nielsen.sites.wfu.edu/#about) for more details.
 
 ## Research
 
