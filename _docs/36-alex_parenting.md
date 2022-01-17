@@ -101,30 +101,36 @@ As it says in the report:
 
 ![](../blobs/apexparenting/report_bec_saturday_morning_kids.jpg)
 
-Alex is always at work, **she doesn't have the bandwidth to spend quality time with the kids** or look after the kids herself. 
+- Rebecca looks after the kids
+
+![](../blobs/reportcontradictions/report_contradictions_sat_2.png)
+
+- Victoria and Rebecca looks after the kids
+
+Alex is always at work, **she doesn't have the bandwidth to spend quality time with the kids** or look after the kids herself.
+
+Kids are left to other people to look after them.
+
+This is a real problem, the kids hate this especially when **Victoria** is looking after the kids. The kids, both Charlie & Chloe have told me that Victoria starves them as [I have already stated here](/marcseparation/alex_sister_victoria/#victoria-starves-my-kids), as an example, giving the kids half an egg & lettuce sandwich only and when the kids ask for seconds, or another serving of a sandwich, Victoria says "*no*". 
 
 ## No control or discipline
+
 - The children are left to their own devices. 
 
 
 ![](../blobs/apexparenting/report_alex_could_be_stricter.png)
 
-- Alex's best friend Bec said it herself, Alex could be stricter
+- Even Alex's best friend Bec said it herself, Alex could be stricter
 
 
+### No structure
 
-
-
-No structure
 - Alex never had proper structure growing up.
-- The kids need structure, then need to learn routine
+  - Her Dad was dead when she was a teenager
+  - Her Mum was very much hands-off parenting
+- The kids need structure, then need to learn routine, rules, values & authority
 
+### Fear & Uncomfortable
 
-Fear & Uncomfortable
-- Vic saying “He’s such a dickhead” about Marc, in front of the kids. The kids felt very uncomfortable. 
-
-Living arrangements
-- Back yard grass edges is a mess and out of control, the kids complain about always getting leeches from the back yard. 
-- House is constantly unlocked, we back on to bush 
-
-
+- Vic saying "*[He's such a dickhead](/marcseparation/vic_calling_me_a_dickhead/)*" about me, in front of the kids. Understandably my kids felt very uncomfortable. 
+- Kids are not comfortable, [the house is constantly unlocked](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked).
