@@ -18,6 +18,10 @@ This is both Charlie & Chloe pushing me around on the spinning thing at the park
 
 The report contained the following:
 
+![](../blobs/lovedad/Report6.png)
+
+- Alex said about me "*He really loves them and he wouldn't hurt them. There is no domestic vioence*"
+
 ![](../blobs/lovedad/Report1.png)
 
 - *He already has failed to make his time a rich one for the children with child centered experiences*

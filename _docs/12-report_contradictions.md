@@ -91,3 +91,15 @@ If we weigh it all up, there's a totally different focus on Chloe here between A
 Kids don't struggle around me, see this section on [Dad is fun](/marcseparation/dad_fun/) and [Dad is a good Dad](/marcseparation/dad_is_a_good_dad/), there's heaps of content, the kids are having so much fun and are more than happy when they're with me. 
 
 Another example I posted [here](/marcseparation/dad_is_a_good_dad/#big-boing-birtinya-qld), this is when we went to Queensland to visit the paternal grandparents. I didn't want to go on the trampolines with the kids as I thought I was too old, but it was my daughter **Chloe** that twisted my arm to do this. She wouldn't have twisted my arm so much if the above statements were true - Chloe doesn't not struggle with me and the kids are not intimidated at all. 
+
+### My time with the kids
+
+![](../blobs/reportcontradictions/report_contradictions_timekids_1.png)
+
+- At number 91, Alex says that I am fixated with 50/50 time with the kids (week on / week off)
+
+![](../blobs/reportcontradictions/report_contradictions_timekids_2.png)
+
+- At number 17, Alex says that I want a long block of 3 weeks
+
+This is conflicting information. But to set the record straight, I have been consistent all along and always advocated for week on / week off (50/50) across the whole year, this is both across school days and school holidays.

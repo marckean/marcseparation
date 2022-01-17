@@ -15,7 +15,7 @@ Whilst in the session with Dr Ruth Selig, there were several things that I menti
 
 - Ruth told me that *I’ll be putting in the report that Julia Spence committed suicide*. But she didn't. 
 
-![](../blobs/report_juliadiedinhersleep.png)
+![](../blobs/missedmentions/report_juliadiedinhersleep.png)
 
 ## Alex's mental state
 
@@ -60,3 +60,16 @@ Alex doesn't even have an account for **Netflix** & **Disney+** and is using Bec
 
 - In the last few months before separation, when going to bed, Alex never said goodnight to me
 - Asked me if I had another partner, this wasn’t mentioned anywhere
+
+### Holiday time with the kids
+
+![](../blobs/missedmentions/report_time_holidays_alex.png)
+
+- This is false, inaccurate, I have been consistent all the time and always wanted week on / week off (50/50) with the kids, this includes the holidays.
+
+### Stick next to bed
+
+![](../blobs/missedmentions/report_stick_next_bed.png)
+
+- This stick was like a long wooden dowel (cylindrical rod) and was beside the bed for self defence only. As [I have already documented here](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked), Alex constantly leaves the house unlocked, and still does today. Times when I went to bed first before Alex, there was no guarantee the house would be locked before she went to bed and I needed to be ready to defend myself and my family in case of an intruder in the home. Same thing in my car, I have a long metal cylindrical pole in my car beside the car seat ready in case of road rage to defend myself. Always be prepared. My father used to do the same, always be ready just in case.
+
