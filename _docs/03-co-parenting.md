@@ -59,7 +59,7 @@ Alex is not coping.
 
 | October 2021 |
 | ----------- |
-| I found out through Dr Ruth Selig, that my daughter Chloe Kean had a psychologist appointment, and I knew nothing about it. I still know nothing about it, but I do know that she had this appointment. <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="800" src="../blobs/coparenting/chloe_psychologist.png"></p> |
+| I found out through Dr Ruth Selig, that my daughter Chloe Kean had a psychologist appointment, and I knew nothing about it. I still know nothing about it, but I do know that she had this appointment. <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="800" src="../blobs/coparenting/chloe_psychologist.png"> |
 
 ## Not informing me about other things
 
