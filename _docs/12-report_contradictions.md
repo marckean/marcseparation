@@ -39,23 +39,28 @@ This is Chloe discussing it with me...
 
 ![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_1.png)
 
-- As it states here, Alex works from home five days a week including Saturday mornings.   
+- As it states here, Alex works from home five days a week **including Saturday mornings**.
 
 ![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_2.png)
 
-- Then a little later in the report, it clearly states that both Victoris and Bec looks after the kids on Saturday mornings
+- Then here (a little later in the report), it clearly states that both **Victoria** and **Rebecca** looks after the kids on Saturday mornings.
 
 ![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_3.png)
 
 - This one confirms that every week, Alex is **not** working from home on Saturday mornings
+- This conflicts with number 12
 
 ![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_4.png)
 
 - This is one is totally incorrect as **Rebecca** has no family relation at all with Andrew Kyngdon.
+- This one conflicts with 23 where says that both **Victoria** & **Rebecca** looks after the kids on Saturday mornings, whereas here it clearly states that Rebecca looks after the kids **every Saturday**
 
 ![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_5.png)
 
+- This one states that Bec looked after the kids **most** weekends. 
+- This one conflicts with 86, does Rebecca look after the kids **most** weekends, or **every** weekend? Which one is it? 
 
+This is a lot of conflicting information with this one.
 
 ### Kids and their voices
 
