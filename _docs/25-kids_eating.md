@@ -12,6 +12,10 @@ toc: true
 
 - Bec said *He was force-feeding the children but no-one has ever stopped it*
 
+![](../blobs/reportforcefeeding/report_forcefeeding5.png)
+
+- Alex said *He insisted that the children eat everything on their plate*
+
 ### Report writers comment
 
 ![](../blobs/reportforcefeeding/report_forcefeeding2.png)
@@ -26,7 +30,9 @@ toc: true
 
 ## My rebuttal
 
-FIrstly, let's define what it really means if a kids says they're full and let's hear it from a kids mind, my son Charlie:
+It's all about understanding my kids and how much they can eat.
+
+Firstly, let's define what it really means if a kids says they're full and let's hear it from a kids mind, my son Charlie:
 
 <audio src="../audio/Definition_of_full_from_a_kids_mind.mp3" type="audio/mpeg" controls>
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
