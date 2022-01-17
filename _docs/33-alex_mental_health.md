@@ -31,7 +31,7 @@ Doing extensive research online, knowing Alex from **before** and **after** we s
 
 - Alex is a single Mum in a large home, much bigger than she needs with her and two kids, [the matimonial home is run down](/marcseparation/living_conditions/)
 - [In the report](/marcseparation/report_contradictions/#contradiction-2), Alex says that she goes to the park each afternoon from 3pm, but my daughter Chloe says the opposite
-- It's true that when the kids are with their Mum, they are left alone to play with their friends and/or be looked after by Aunty's or friends as Alex needs to work. It's also true that Charlie goes to the park by himself. 
+- It's true that when the kids are with their Mum, [they are left alone](/marcseparation/alex_parenting/#alex-is-never-around) to play with their friends and/or be looked after by Aunty's or friends as Alex needs to work. It's also true that Charlie goes to the park by himself. 
 - 
 
 

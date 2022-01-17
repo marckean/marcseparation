@@ -40,12 +40,13 @@ All the literature on the topic of shared parenting:
 - [Scientific research for shared parenting](/marcseparation/my_initial_comments/#scientific-research-for-shared-parenting)
 - [Nielsen’s Research: Divorce & Shared Parenting](/marcseparation/appendix_nielsens_research/)
 
-While at the park, Charlie and other parents (Jackie (*mother of one of Charlie's friends*)) tell me that sometimes at the park no parents/adults are there to supervise, and what's more if there is a parent, it's not biological parent of Charlie. One of the stories I heard was that while Charlie was at the park with his friends, one of the parents left to go and get a coffee then came back, but was gone for about 20 minutes.
+While at the park, Charlie and other parents (**Jackie** (*mother of one of Charlie's friends*)) tell me that sometimes at the park no parents/adults are there to supervise, and what's more if there is a parent, it's not biological parent of Charlie. One of the stories I heard was that while Charlie was at the park with his friends, one of the parents left to go and get a coffee then came back, but was gone for about 20 minutes.
 
 <audio src="../audio/Charlie_going_to_park_by_himself.mp3" type="audio/mpeg" controls>
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
 </audio>
 
+This same parent (**Jackie** (*mother of one of Charlie's friends*)) also went on to tell me that there was a time that she got a phone call from Charlie one afternoon at the park. Charlie called Jackie as he was tying to get hold of Mummy (Alex) using his mobile phone, however, Alex wasn't at home and wasn't picking up her phone. So not only was Charlie at the park himself, but Alex wasn't even at home and not contactable on her phone. 
 ### Dad and doesn't take kids to the park (False opinion from the report)
 
 What Charlie is meaning by this statement below, he means like what happens at his mothers place. Currently he's with his mother 71.4% of the time, so things that happen (rightly or wrongly) with his mother would seem routine to him:
@@ -83,7 +84,7 @@ It's confirmed [here](/marcseparation/report_contradictions/#contradiction-2). I
 
 ### After School care
 
-Why doesn't Alex put the kids in after school care? Well just like I mentioned in the section [Co-Parenting not working](/marcseparation/co_parenting/), Alex has no money to spend on the kids, as she's spending it all 
+Why doesn't Alex put the kids in after school care? Well just like I mentioned in the section [Co-Parenting not working](/marcseparation/co_parenting/), Alex has no surplus money to spend on the kids, as she's spending it all legal fees, [she's living beyond means just trying to stay afloat](/marcseparation/child_support/) in the current matrimonial home. Her part time job paying peanuts and the huge reliance on child support money, she's in the deep end just trying to stay above the water. 
 
 ### Aunty Vic - 5 star hotel pool
 

@@ -37,13 +37,25 @@ This is Chloe discussing it with me...
 
 ### Alex working on Saturday mornings.
 
-![report_contradictions3](../blobs/reportcontradictions/report_contradictions3.png)
+![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_1.png)
 
-Chloe says the opposite. 
+- As it states here, Alex works from home five days a week including Saturday mornings.   
 
-![report_contradictions4](../blobs/reportcontradictions/report_contradictions4.png)
+![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_2.png)
 
-It's true that when the kids are with their Mum, they are left alone to play with their friends and/or be looked after by Aunty's or friends as Alex needs to work. It's also true that Charlie goes to the park by himself. 
+- Then a little later in the report, it clearly states that both Victoris and Bec looks after the kids on Saturday mornings
+
+![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_3.png)
+
+- This one confirms that every week, Alex is **not** working from home on Saturday mornings
+
+![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_4.png)
+
+- This is one is totally incorrect as **Rebecca** has no family relation at all with Andrew Kyngdon.
+
+![report_contradictions3](../blobs/reportcontradictions/report_contradictions_sat_5.png)
+
+
 
 ### Kids and their voices
 

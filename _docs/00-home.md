@@ -45,6 +45,22 @@ Then we had two neurotypical people in the sessions (Alex & Bec), **Ruth Selig**
 Report writers need to remain neutral and leave all emotions out completely with these things - not the case here. There's a ton of things incorrect and this site is here to bring it all out in the open by using photos, audio and videos - media in these formats doesn't lie.
 
 **Note:** **I love my kids to bits**, why else would I go to so much trouble in putting this site together.
+
+### Accuracy of the report
+
+There are many errors in this report. Like I was saying just above, someone's interpretation using a pen/paper to note things down is prone for for errors, humans are not perfect, they make mistakes. 
+
+You need to seriously question the credibility of this report writer. 
+
+![report_contradictions_sat_4](./blobs/reportcontradictions/report_contradictions_sat_4.png)
+
+- This is one is totally incorrect as **Rebecca** has no family relation at all with Andrew Kyngdon.
+
+![report_accuracy_1](./blobs/accuracy/report_accuracy_1.png)
+
+- At the time of the report, I am only 45 years of old and I don't live in Chatswood, I live in Asquith. 
+
+
 ### How to use this site
 
 Main navigation is to the left, and I have grouped each section to make it easier to follow. 
