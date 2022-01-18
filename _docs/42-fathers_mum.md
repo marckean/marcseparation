@@ -8,7 +8,7 @@ toc: true
 
 [//]: # (margin:top right bottom left)
 
-The below are all comments from my Mum, the paternal grandmother in this situation. All comments are directed towards me. 
+The below are all comments from my Mum, the paternal grandmother in this situation. All comments are directed towards me. Mum send me a word document directed at me with comments about various statements in the report, then I added them and pieced it together with report statements on this page. 
 
 There are the snippets from the report (a mix of Alex's (the mother's) responses, Chloe's (my daughter's) responses and my (the father's) responses from the sessions with the report writer) with my Mum's comments under each one.
 
