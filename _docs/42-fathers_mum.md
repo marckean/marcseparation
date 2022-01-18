@@ -106,4 +106,8 @@ There are the snippets from the report (a mix of Alex's (the mother's) responses
 
 ![](../blobs/paternalgrandmother/176.png)
 
+- it wasn’t a matter of you not allowing her to see Chelsea, Alex was estranged from Victoria, so that was why she didn’t see her.
+
 ![](../blobs/paternalgrandmother/190.png)
+
+- she’s saying Chloe is not frightened of standing up to you.    This goes against what Alex is trying to say…..  also backs up the way you were playing the game and checking the rules. 
