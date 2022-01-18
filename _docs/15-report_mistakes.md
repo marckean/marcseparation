@@ -9,7 +9,7 @@ There are many errors in this report. Like I was saying [here](/marcseparation/#
 
 You need to seriously question the credibility of this report writer. 
 
-As the audio of the sessions weren't recorded digitally or analog, there's no way to prove the accuracy of anything in the report.
+As the audio of the sessions wasn't recorded either digitally or analog, there's no way to prove the accuracy of anything in the report and based on the [contradictions](/marcseparation/report_contradictions/) and the mistakes which I have listed here, this entire report is questionable.
 
 ## Simple mistakes
 
