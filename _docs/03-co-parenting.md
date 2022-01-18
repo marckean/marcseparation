@@ -70,3 +70,23 @@ Alex is not coping.
 | Not informing me about kids being out of school |
 | ----------- |
 | Julia Spence (Alex’s sister) had her funeral out of town (in Bowral) Tuesday April 20, 2021 and failed to let me know as per section 20 of the parenting order (below). <p> Alex took the kids out of school for two days. <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_school_absences.png"> |
+
+## Different behaviours from the kids upon delivery
+
+Just like this comment from Alex's friend Bec:
+
+![](../blobs/apexparenting/repoart_kids_thawing_out1.png)
+
+I get exactly the same when I take delivery of the kids, but more shocking. I have noticed several times, within 24/48 hours of getting the kids back, I would ask Charlie to do something, and his response, instantly, would be "*No*". This is totally the out of character of Charlie when he's around me. Normally when I ask the kids (Charlie & Chloe) to do something, they do it straight away with no fuss at all. I'm assuming they then do the opposite when they are returned to their mother and are very well behaved kids for a short time. 
+
+It pretty much says it here:
+
+![](../blobs/apexparenting/repoart_kids_thawing_out2.png)
+
+Again, Alex's friend Bec even said it herself, "*Alex could be stricter*", **totally**. 
+
+Even before Alex and I were separated, the kids were totally out of control around Alex, not doing what they were told and just treating Alex like a joke. I had to constantly step into to sort things out and get the kids to respect Alex. I was always telling them to respect Alex, but they never did. The kids respected me, but Alex was never able to get it. 
+
+I would say to Alex how I did things being a big believer of **consistency** and **follow though**, and as much as Alex **admired** and **relied** on my back-up for parenting, she'd hate me giving her any tips or advice which would ultimately help her long term. 
+
+It was weird, Alex loved it how I was there to always step in for support, but as soon as I said anything about assisting her to parent, she straight away thought I was attacking and criticising her and this developed into an argument - always. Alex was not interested in developing her parenting skills at all, not from me or anyone else for that matter. 

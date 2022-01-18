@@ -98,3 +98,12 @@ There are the snippets from the report (a mix of the mother's responses and my (
 
 
 - you’re trying to encourage other interests.   Alex just lets them go on their computers – when we were there I didn’t see her read with them or encourage them to read.
+
+
+![](../blobs/paternalgrandmother/139.png)
+
+## My daughter Chloe's session with the report writer
+
+![](../blobs/paternalgrandmother/176.png)
+
+![](../blobs/paternalgrandmother/190.png)
