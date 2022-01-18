@@ -49,7 +49,7 @@ docs:
         url: /report_contradictions/
       - title: "Themes"
         url: /report_themes/
-      - title: "Report Writer Influence"
+      - title: "Report writer influence"
         url: /report_writer_influence/
       - title: "Report mistakes"
         url: /report_mistakes/
