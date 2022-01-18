@@ -179,3 +179,16 @@ Some details on Bec/Rebecca [here](/marcseparation/alex_friend_bec/).
 - You need to make note of the fact that Alex blamed you for Julia’s death….   Also that she wanted us dead to claim some of your inheritance… 
 
 - You and Toni did not disagree on your parenting…
+
+
+## Statement from Toni Whitby (Marc Kean's sister)
+
+We had a blessed upbringing and we were and still are extremely fortunate to have such caring, supportive parents. My three children (17-21 years) adore their grandparents and see them regularly.  They also choose to call and speak to them for advice on matters and look to them for counsel and guidance. 
+
+Marc had a challenging childhood in times external to the home.  He had learning difficulties that affected his school success. He also had difficulties managing and negotiating social interactions and was bullied, teased, excluded and isolated throughout his childhood years. I am only 16 months older and remember these times as very difficult for him in his search to be accepted/included by his peers and feel his social worth. It was utterly heartbreaking to watch. 
+
+My parents, Mum in particular, devoted much of her time to supporting Marc by accessing a huge range of programs and strategies based on a wide range of medical and supporting services advice. We had specifically designed gyms to extend his proprioceptive system and brain/neural development by using cross crawl exercises, after school activities and even a duration of home schooling.  
+
+My parents raised us with love and much care. He could not have been more well supported or loved.
+
+Toni Whitby
