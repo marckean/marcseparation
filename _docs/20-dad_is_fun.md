@@ -29,6 +29,8 @@ The report contained the following:
 ![](../blobs/lovedad/Report2.png)
 
 - *Rather than picking up the que that they needed to go outside and do physical activity together*
+- **Comment from my Mum, the paternal grandmother** - saying the kids needed to go outside is just a statement…. They do what children do, annoy each other… They should also be able to entertain themselves – they shouldn’t need a parent to constantly amuse them.   Where is the credibility in the statement ‘*picking up the cue that they needed to go outside and do physical activity together*’…..     that is just a generalised statement… There are times when children just need to do what is asked – they are too young to realise the reasoning behind a request – they can have opinions, but ultimately the parent should make the decision.    What they do in their free time, is entirely their choice…
+
 
 ![](../blobs/lovedad/Report3.png)
 
@@ -37,10 +39,12 @@ The report contained the following:
 ![](../blobs/lovedad/Report4.png)
 
 - *The inflexibility which is due to his neurodevelopmental disorder is a major deficit to his ability to relate to all people and in particular his own children*
+- **Comment from my Mum, the paternal grandmother** - Saying the father ‘*is inflexible due to his neurodevelopmental disorder*’ is just an excuse… The children know what they are likely to get away with and are quite capable of communicating.
 
 ![](../blobs/lovedad/Report5.png)
 
 - *The father's nature of having less emotional understanding and his own concrete beliefs about what they need, has meant he has cut himself off from them psychologically*
+- **Comment from my Mum, the paternal grandmother** - Of course the children have spent more time with their mother throughout their lives – that is what usually happens.  The father works and supports the family…  The children had plenty of time to communicate well with their father – and did so… He was quite well aware of what was happening in the house.
 
 ## My rebuttal
 

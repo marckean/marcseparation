@@ -32,6 +32,16 @@ This video that I found on my son's Charlie's phone from December 24, 2021 (very
     src="https://www.youtube.com/embed/1DrgiEB1QRE?playlist=1DrgiEB1QRE&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+Izzy may be her family (her daughter), but definitely not Alex, Charlie & Chloe.
+
 The exact same time, there's my daughter Chloe with Bec, Izzy, Alex & Charlie and doesn't look happy at all. Chloe looks totally uncomfortable. Of course she would hearing things like this is her new "***Family***" all the time. Of course it would confuse my kids, as me being the Dad that Chloe loves so much is not there. Bec and Izzy is NOT "***Family***", they are just best friends of Alex, this DOES NOT class them as "***Family***". 
 
 ![](../blobs/beckids/chloe_with_bec.png)
+
+### Family?
+
+Even in the session with **Ruth Selig** Bec refers to her daughter Izzy, Alex, Charlie & Chloe as "***Family***" 
+
+![](../blobs/beckids/report_bec_kids1.png)
+
+Izzy may be her family (her daughter), but definitely not Alex, Charlie & Chloe. 

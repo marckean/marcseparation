@@ -127,3 +127,46 @@ There are the snippets from the report (a mix of Alex's (the mother's) responses
 ![](../blobs/paternalgrandmother/221.png)
 
 - absolutely what they are doing
+
+
+
+## Alex's friend Bec's session with the report writer
+
+Some details on Bec/Rebecca [here](/marcseparation/alex_friend_bec/). 
+
+![](../blobs/paternalgrandmother/241.png)
+
+- that’s a lie – she said Julia was a bad egg…..  she makes herself sound like a hero again.
+
+![](../blobs/paternalgrandmother/243.png)
+
+- is Chloe telling the truth to Alex about what you have supposedly done?    I think there are games being played here. She seems OK when she’s with you, so what’s the issue?
+
+![](../blobs/paternalgrandmother/244.png)
+
+- Charlie is fine with you.  She seems to think the family wouldn’t manage without her input.   ‘*going away as a family – she is not their family*’
+
+![](../blobs/paternalgrandmother/247.png)
+
+- she makes it sounds as if we have a lot to do with what you are doing… Rubbish…
+
+![](../blobs/paternalgrandmother/249.png)
+
+- Chloe is quite capable of handling your and her relationship.
+
+![](../blobs/paternalgrandmother/250.png)
+
+- I think Chloe puts on the act to keep in sweet with Alex… She can quite easily use a situation for her own advantage.
+
+![](../blobs/paternalgrandmother/251.png)
+
+- Again Bec seems to think she is the hero and Alex and children wouldn’t manage without her…  It sounds like she thinks Chloe needs her for someone to talk to…   If Alex has the children the bulk of the time, she should be able to manage without constant interference from Bec and Victoria…
+- **Comment from me (Marc)** - I back Mum's comment here with [this](/marcseparation/alex_parenting/#alex-is-never-around) - Chloe's own comment that "*Mummy never plays with me*". 
+
+![](../blobs/paternalgrandmother/261.png)
+
+- There is absolutely nothing wrong with reading the rules… that is how you learn to play the game…  Toni (my sister, a QLD primary school teacher) said with her grade 1 children – they get really upset if things aren’t ‘*fair*’, which includes playing games – they want to play games according to the rules, otherwise it’s not fair…   ‘*fairness*’ apparently is a big thing with little kids…
+
+	Also you were at a disadvantage going second….the kids had already been through it all with Alex, so were likely looking for a change of scene.   
+
+

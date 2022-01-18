@@ -14,6 +14,7 @@ toc: true
 ![](../blobs/livingconditions/Report2.png)
 
 - "She copes beautifully with a big house and takes a lot of pride in it."
+- **Comment from my Mum, the paternal grandmother** - Alex absolutely does not cope with a big house – there is chaos all through it – she can’t take pride when it’s dirty and stuff everywhere……  Alex will fight tooth and nail to keep the house, purely to spite Marc, just so she ‘*wins*’…….  Makes you wonder what Bec’s house is like?
 
 ## My rebuttal
 
