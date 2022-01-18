@@ -21,6 +21,27 @@ As the audio of the sessions wasn't recorded either digitally or analog, there's
 
 - At the time of the report, I am only 45 years of old and I don't live in Chatswood, I live in Asquith. 
 
+### Alex's sister Julia
+
+Alex only had mentally screwed up younger sister that committed suicide. This was **Julia**, not **Julie**.
+
+![](../blobs/mistakes/report_julia3.png)
+
+- The report writer refers to Julia with the correct spelling here.
+
+![](../blobs/mistakes/report_julia1.png)
+
+- This is my Mum's comment (the paternal grandmother)
+
+![](../blobs/mistakes/report_julia2.png)
+
+About 85% of the references to Julia, Julia's name is spelt correctly, but then the remaining 15% (both mine and my mothers comments) references to Julia, the report writer spells Julia's name wrong as - **Julie**. Is this intentional? 
+
+It makes sense that I did ask the report writer how Julia died and more information about the [family's mental health](/marcseparation/alex_mental_health/), and Ruth ignored this. 
+
+Ruth also looked me in the eye and told me that [she would be putting in the report that Julia committed suicide](/marcseparation/julia_spence_mental_health/#what-the-report-writer-told-me-in-person) - but this wasn't mentioned in the report at all. 
+
+The report writer is clearly trying to sugar coat this mental health aspect. 
 ## Other mistakes
 
 ### Holiday time with the kids
@@ -42,4 +63,5 @@ As the audio of the sessions wasn't recorded either digitally or analog, there's
 - Never ever was there any type of financial abuse. We can check the history with the Commonwealth Bank. While Alex and I were together before separation (Nov 2019) we had joint credit Mastercards. Both cards attached to the same account. Both Alex had one, and I had one. Every month, there's history of me paying it off each month with my salary. 
 
     On top of this, Alex has her own Commonwealth Bank account to where her wages $500/week was paid into, but mostly she had free rein and just used her credit card most of the time.
+
 

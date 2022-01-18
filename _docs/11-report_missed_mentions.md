@@ -17,6 +17,8 @@ Whilst in the session with Dr Ruth Selig, there were several things that I menti
 
 ![](../blobs/missedmentions/report_juliadiedinhersleep.png)
 
+More details [here](/marcseparation/julia_spence_mental_health/#what-the-report-writer-told-me-in-person) on this.
+
 ## Alex's mental state
 
 Everything I listed [here](/marcseparation/alex_mental_health/), I asked **Ruth Selig** to find out what was happening in Alex's head, her mental state. There's clear evidence of mental issues in the family, but **Ruth Selig** skipped this totally and swept this under the rug. **Ruth Selig** did say to me that "*she has powers from the court*" to find out information, so this is when I asked **Ruth Selig** to find out about Alex's mental state of mind. Something is seriously happening with Alex. 

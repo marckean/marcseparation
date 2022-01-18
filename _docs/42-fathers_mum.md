@@ -110,4 +110,20 @@ There are the snippets from the report (a mix of Alex's (the mother's) responses
 
 ![](../blobs/paternalgrandmother/190.png)
 
-- she’s saying Chloe is not frightened of standing up to you.    This goes against what Alex is trying to say…..  also backs up the way you were playing the game and checking the rules. 
+- she’s saying Chloe is not frightened of standing up to you.    This goes against what Alex is trying to say…..  also backs up the way you were playing the game and checking the rules.
+
+## The paternal grandmother's (my Mum's) session with the report writer
+
+### This is Mum commenting about her own statements that were recorded by pen/paper by the report writer
+
+![](../blobs/paternalgrandmother/213.png)
+
+- the info is all wrong
+
+![](../blobs/paternalgrandmother/219.png)
+
+- the friends were really vicious to you, not her
+
+![](../blobs/paternalgrandmother/221.png)
+
+- absolutely what they are doing
