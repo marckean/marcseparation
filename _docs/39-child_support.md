@@ -45,7 +45,9 @@ Think about it, there's no way that if the matrimonial home is sold that Alex wo
 
 Alex is milking the system to her own personal advantage - not in the kids best interest.
 
-Why else did she and her friend Bec go to so much trouble and tell the report writer so much about me being a bad Dad. The report writer, also female, listened to them and was sold on what they both had to say.
+Why else did she and her friend Bec go to so much trouble and tell the report writer so much about me being a bad Dad. The report writer, also female, listened to both Alex & Bec and was sold on what they both had to say.
+
+The contradictions as [mentioned here](/report_contradictions/#chloe-and-i), 
 
 Remember that I separated with Alex, not the kids. I love my kids to bits, why else would I go to so much trouble in putting this site together. I don't have an issue spending money on the kids, but I do have an issue spending money for the kids from behind the scenes via Alex, [I don't even get the pleasure of seeing my children benefit from the spending](/appendix_5050_custody/#7-financial-resources-are-shared-naturally).
 

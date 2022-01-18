@@ -64,6 +64,10 @@ This is a lot of conflicting information with this one.
 
 ### Kids and their voices
 
+![](../blobs/reportcontradictions/report_contradictions_chloe_1.png)
+
+- As noticed & **noted by the report writer** (the so called expert), Chloe had no issues standing up for herself and expressing her thoughts in front of me in the session.
+
 ![report_contradictions3](../blobs/reportcontradictions/report_contradictions5.png)
 
 - **Alex said** "*He is owning his parenting and the children now have their own voices*"
@@ -75,6 +79,10 @@ This is a lot of conflicting information with this one.
 ![report_contradictions4](../blobs/reportcontradictions/report_contradictions9.png)
 
 - **Alex said** "*The children find it hard to stand up for themselves and feel intimidated by him*" (Talking about me).
+
+![](../blobs/reportcontradictions/report_contradictions_chloe_2.png)
+
+- **Alex said** the opposite, that both kids would be more intimidated with 50/50. Alex goes onto say that both kids are restricted from being themselves.
 
 ![report_contradictions4](../blobs/reportcontradictions/report_contradictions7.png)
 
@@ -104,16 +112,3 @@ Another example I posted [here](/marcseparation/dad_is_a_good_dad/#big-boing-bir
 
 This is conflicting information. But to set the record straight, I have been consistent all along and always advocated for week on / week off (50/50) across the whole year, this is both across school days and school holidays.
 
-### Chloe and I
-
-![](../blobs/reportcontradictions/report_contradictions_chloe_1.png)
-
-- As noticed & noted by the report writer (the so called expert), Chloe had no issues standing up for herself and expressing her thoughts in front of me in the session.
-
-![](../blobs/reportcontradictions/report_contradictions_chloe_2.png)
-
-- Alex is saying the opposite, that both kids would be more intimidated with 50/50. Alex goes onto say that both kids are restricted from being themselves.
-
-![](../blobs/reportcontradictions/report_contradictions_chloe_3.png)
-
-This comment from Alex's friend Bec. This contradicts what the report writer witnessed in the session. 
