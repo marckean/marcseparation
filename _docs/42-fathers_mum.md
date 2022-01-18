@@ -110,7 +110,7 @@ There are the snippets from the report (a mix of Alex's (the mother's) responses
 
 ![](../blobs/paternalgrandmother/190.png)
 
-- she’s saying Chloe is not frightened of standing up to you.    This goes against what Alex is trying to say…..  also backs up the way you were playing the game and checking the rules.
+- ***This 190 is a statement from the report writer's observation about Chloe*** - she’s saying Chloe is not frightened of standing up to you.    This goes against what Alex is trying to say…..  also backs up the way you were playing the game and checking the rules.
 
 ## The paternal grandmother's (my Mum's) session with the report writer
 
@@ -170,3 +170,12 @@ Some details on Bec/Rebecca [here](/marcseparation/alex_friend_bec/).
 	Also you were at a disadvantage going second….the kids had already been through it all with Alex, so were likely looking for a change of scene.   
 
 
+## General comments from my Mum, the paternal grandmother
+
+- Alex and her sister were brought up in a very casual environment…. The grandmother was the one who tried to maintain some sort of discipline – the way the children behaved etc…..  Julia is 4 years younger than Alex, but when Alex left home and moved in with Victoria and other friends, Julia’s mother allowed her at 14 to leave home and live with her sisters…..   it was obvious that Alex felt protective and responsible for Julia – surely that should have been the mother’s job…..   Victoria is no good example of how to bring up children – they have no control at all and the children ignore what she says.    Even Charlie says Henry is ‘a brat’.    Charlie needs his father’s influence – he wants to be with him half time……
+
+- When we were there didn’t see Alex actually spend time with them… she asked me to read their readers, and play etc….   
+
+- You need to make note of the fact that Alex blamed you for Julia’s death….   Also that she wanted us dead to claim some of your inheritance… 
+
+- You and Toni did not disagree on your parenting…
