@@ -50,11 +50,11 @@ Alex is not coping.
 
 | February 1, 2021 | March 12, 2021 |
 | ----------- | ----------- |
-| <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments1.jpg"> | Doesn’t tell me in advance about the Charlie’s optometrist visit <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments2.jpg"> |
+| <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="320" src="../blobs/coparenting/kids_medical_appointments1.jpg"> | Doesn’t tell me in advance about the Charlie’s optometrist visit <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments2.jpg"> |
 
 | November 18, 2020 | March 23, 2021 |
 | ----------- | ----------- |
-| <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/coparenting/kids_medical_appointments3.png"> | I emailed this to the dentist and knew of the kids dentist appointment on said date, but Alex never tells me about this appointment. <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/coparenting/kids_medical_appointments4.png"> |
+| <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/coparenting/kids_medical_appointments3.png"> | I emailed this to the dentist and knew of the kids dentist appointment on said date, but Alex never tells me about this appointment. <img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/coparenting/kids_medical_appointments4.png"> |
 
 
 | October 2021 |
