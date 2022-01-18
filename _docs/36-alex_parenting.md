@@ -16,6 +16,10 @@ toc: true
 
  - This is comment that my daughter Chloe made in the session
 
+![](../blobs/charlieparkbyhimself/report_charlieparkbyhimself3.png)
+
+- Alex literally spells it out, **Charlie goes to the park by himself**.
+
 ### Email sent to Alex August 31, 2021:
 
 > Charlie has told me that he goes to the park by himself each day and hangs out with his friends (Ted, Oscar, etc.). As I understand it, he is unsupervised both walking up to the park and whilst at the park. If this is correct, I am very concerned at the possible influences and temptations for unsupervised boys this age and from the possibility of adults with ulterior motives trying to coax Charlie (and the other boys) into inappropriate behaviour or worse – in Charlie’s case, either on the street going to or from the park or at the park. Charlie did say that on one occasion, a father of one of the other boys was present but had to go, leaving the boys on their own. I am unclear as to whether there is any other supervision by a responsible adult.
