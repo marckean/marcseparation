@@ -25,13 +25,21 @@ As the audio of the sessions wasn't recorded either digitally or analog, there's
 
 ### Holiday time with the kids
 
-![](../blobs/missedmentions/report_time_holidays_alex.png)
+![](../blobs/mistakes/report_time_holidays_alex.png)
 
 - This is false, inaccurate, I have been consistent all the time and always wanted week on / week off (50/50) with the kids, this includes the holidays.
 
 ### Stick next to bed
 
-![](../blobs/missedmentions/report_stick_next_bed.png)
+![](../blobs/mistakes/report_stick_next_bed.png)
 
 - This stick was like a long wooden dowel (cylindrical rod) and was beside the bed for self defence only. As [I have already documented here](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked), Alex constantly leaves the house unlocked, and still does today. Times when I went to bed first before Alex, there was no guarantee the house would be locked before she went to bed and I needed to be ready to defend myself and my family in case of an intruder in the home. Same thing in my car, I have a long metal cylindrical pole in my car beside the car seat ready in case of road rage to defend myself. Always be prepared. My father used to do the same, always be ready just in case.
+
+### Financial abuse
+
+![](../blobs/mistakes/report_financial_abuse.png)
+
+- Never ever was there any type of financial abuse. We can check the history with the Commonwealth Bank. While Alex and I were together before separation (Nov 2019) we had joint credit Mastercards. Both cards attached to the same account. Both Alex had one, and I had one. Every month, there's history of me paying it off each month with my salary. 
+
+    On top of this, Alex has her own Commonwealth Bank account to where her wages $500/week was paid into, but mostly she had free rein and just used her credit card most of the time.
 
