@@ -50,18 +50,7 @@ Report writers need to remain neutral and leave all emotions out completely with
 
 There are many errors in this report. Like I was saying just above, someone's interpretation using a pen/paper to note things down is prone for for errors, humans are not perfect, they make mistakes. 
 
-You need to seriously question the credibility of this report writer. 
-
-As the audio of the sessions weren't recorded digitally or analog, there's no way to prove the accuracy of anything in the report.
-
-![report_contradictions_sat_4](./blobs/reportcontradictions/report_contradictions_sat_4.png)
-
-- This is one is totally incorrect as **Rebecca** has no family relation at all with Andrew Kyngdon.
-
-![report_accuracy_1](./blobs/accuracy/report_accuracy_1.png)
-
-- At the time of the report, I am only 45 years of old and I don't live in Chatswood, I live in Asquith. 
-
+You need to seriously question the credibility of this report writer. I have documented the mistakes [here](/marcseparation/report_mistakes/).
 
 ### How to use this site
 
