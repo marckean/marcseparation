@@ -47,8 +47,6 @@ docs:
         url: /report_missed_mentions/
       - title: "Contradictions"
         url: /report_contradictions/
-      - title: "Themes"
-        url: /report_themes/
       - title: "Report writer influence"
         url: /report_writer_influence/
       - title: "Report mistakes"
