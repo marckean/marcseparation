@@ -119,22 +119,40 @@ This is a real problem, the kids hate this especially when **Victoria** is looki
 
 ## No control or discipline
 
-- The children are left to their own devices. 
-
+The children are left to their own devices. As I mentioned [here](/marcseparation/co_parenting/#different-behaviours-from-the-kids-upon-delivery), the kids ran ramped & wild around Alex, they were so out of control with her. Alex admired and relied on my back-up for parenting, Alex loved it how I was there to always step in for support.
 
 ![](../blobs/apexparenting/report_alex_could_be_stricter.png)
 
 - Even Alex's best friend Bec said it herself, Alex could be stricter
 
-
 ### No structure
 
-- Alex never had proper structure growing up.
+Alex came from a broken family and never had proper structure growing up.
   - Her Dad was dead when she was a teenager
+  - Her Dad broke up with the Mum and moved out when Alex was six years old
   - Her Mum was very much hands-off parenting
-- The kids need structure, then need to learn routine, rules, values & authority
+
+My kids need structure, then need to learn routine, rules, values & authority and this is exactly what I can provide. 
 
 ### Fear & Uncomfortable
 
 - Vic saying "*[He's such a dickhead](/marcseparation/vic_calling_me_a_dickhead/)*" about me, in front of the kids. Understandably my kids felt very uncomfortable. 
 - Kids are not comfortable, [the house is constantly unlocked](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked).
+
+## Counselling for my daughter
+
+Throughout the report, Alex made it known that she's taken Chloe to counselling. 
+
+![](../blobs/apexparenting/repoart_chloe_counselling_1.png)
+
+- Counselling here
+
+![](../blobs/apexparenting/repoart_chloe_counselling_2.png)
+
+- Psychologist here
+
+I knew nothing about these visits for my daughter Chloe. This is another example how Alex has failed to abide by [the interim parenting orders](/marcseparation/co_parenting/#not-informing-me-about-kids-medical-appointments) from the federal court. 
+
+I think it's a bit over the top to take an 8 year old to these things. However, it's no wonder as this is exactly how Alex was parented. As mentioned above, we generally parent how we were parented. Alex's mother (when she was alive) worked for **Relationships Australia** as a counsellor. Alex grew up in the environment where counselling was normal and this would be the reason why she'd be sending Chloe without even a second thought. 
+
+However there's more to this with Chloe which Alex doesn't get as Alex is neurotypical. The [CAST assessment I did with my daughter Chloe recently](/marcseparation/chloe/) confirmed my thoughts that Chloe - like me - has Asperger's. I could sense a long time ago.  

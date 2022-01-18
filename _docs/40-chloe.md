@@ -16,4 +16,4 @@ Chloe's test result below:
 
 ![](../blobs/chloe/Childhood_Autism_Spectrum_Test_Score.png)
 
-I know my daughter fairly well, and like I assumed, it looks like she's like me and has Asperger's syndrome. 
+I know my daughter fairly well, and like I assumed, it looks like she's like me, has my genes and has Asperger's syndrome. 
