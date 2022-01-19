@@ -46,7 +46,7 @@ As evidence to show that I am super sensitive to humidity & places being stuffy,
 ![](../blobs/expertsopinions/report_lazy_rich_experience.png)
 
 - This report writer saying that my view of the world is different to that of neurodevelopmentally average individuals in relation to the mother's housekeeping? The report writer hasn't even seen the matrimonial home, as shown [here](/marcseparation/living_conditions/) and [here](/marcseparation/living_comparisons/), the mother's housekeeping is beyond any form of acceptable. Just like her own mother, as per the pages I have provided links for on this site, Alex is totally lax & lazy when it comes to housekeeping, and no matter if you're a neurodevelopmentally average individual or with Asperger's, it's clear to see. 
-- As for saying that I have failed to make my time a rich one for the kids, well considering I haven't really had the chance to prove myself as a Dad with only 
+- As for saying that I have failed to make my time a rich one for the kids, this is not fair at all. Considering I haven't really had the chance to prove myself as a Dad with only 28.6% of the time spent with the kids, I haven't had the bandwidth nor time to really develop a rich experience for the kids. I get the kids, [they thaw out](/marcseparation/co_parenting/#different-behaviours-from-the-kids-upon-delivery), adjust with me, then you blink an eye and then they're back with their Mum again. More time with the kids would make a **huge** difference. 
 
 ## Page 44/45
 
