@@ -77,4 +77,12 @@ The report writer is clearly trying to sugar coat this mental health aspect.
 
     On top of this, Alex has her own Commonwealth Bank account to where her wages $500/week was paid into, but mostly she had free rein and just used her credit card most of the time.
 
+### Kids WiFi
+
+![](../blobs/missedmentions/report_kids_wifi.png)
+
+This is bullshit, I never said this, the report writer has gotten this twisted around. I stop the kids WiFi (sometimes) when either breakfast, lunch or dinner is ready. I hit the stop button, then within 10 seconds, kids happily run out and say "*Yes Dad*"? 
+
+We then eat, the I unblock the WiFi once we've finished eating. 
+
 

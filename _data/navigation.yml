@@ -51,7 +51,7 @@ docs:
         url: /report_writer_influence/
       - title: "Report mistakes"
         url: /report_mistakes/
-      - title: "Experts Opinions"
+      - title: "Experts opinions"
         url: /experts_opinions/
   - title: Father
     children:
