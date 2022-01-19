@@ -51,6 +51,7 @@ The contradictions as [mentioned here](/marcseparation/report_contradictions/#ki
 
 Remember that I separated with Alex, not the kids. I love my kids to bits, why else would I go to so much trouble in putting this site together. I don't have an issue spending money on the kids, but I do have an issue spending money for the kids from behind the scenes via Alex, [I don't even get the pleasure of seeing my children benefit from the spending](/appendix_5050_custody/#7-financial-resources-are-shared-naturally).
 
+![](../blobs/child_support_weakens_bond.png)
 
 ### Matrimonial home valuation, Alex blocking real valuations
 

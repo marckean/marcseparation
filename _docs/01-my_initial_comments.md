@@ -57,15 +57,23 @@ So keep this in mind when reading the sections from **259** onwards, it wasn't a
 
  As we look to the future, once the separation is over, my plan it take my money from the matrimonial house and buy another house, and it's then that my time with the kids can be much more quality time spent with the kids.
 
- ![](..blobs/../../blobs/child_support_weakens_bond.png)
- 
+ ![](../blobs/child_support_weakens_bond.png)
 
+A comment from the report writer:
+
+ ![](../blobs/report_cut_kids_off.png)
+
+ This is totally incorrect, it's purely because I have had less time with the kids and not the opportunity to create a real father/kid bond with them. This is not by choice either, most of it was a judges decision with an interim court order, who at the time had 50 cases to get through on the day, he had a headache and was short of temper and said that he was just going to make an order, that was it - I've been stuck with this order - as much as I hated it - for the past 2 years. 
+
+ Now that I am working from home every day (since the start of the pandemic), plus can work whatever hours I like, I can more than accommodate the kids. 
 
 ## About Marc Kean
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/Marc-17.jpg"></p>
 
-Born and raised in QLD to two loving parents. Father a CEO of large enterprises all his life and mostly stay at home mother that did everything around the home. Born June 6, 1976, now working at Microsoft. Bill Gates has Asperger's and Microsoft are setup for all types of people. Being heavily into diversity & inclusion, Microsoft is a great company to work for. With my Asperger's, I am doing great things at Microsoft and supported by my manager and my peers.
+Born and raised in QLD to two loving parents. Father, a CEO of large enterprises all his life and mostly stay at home mother that did everything around the home. Mum, loving supporting mother who'd do anything for me and is always there for me. I was born June 6, 1976, now working at Microsoft for about 5 years now. Bill Gates has Asperger's and Microsoft are setup for all types of people. Being heavily into diversity & inclusion, Microsoft is a great company to work for. With my Asperger's, I am doing great things at Microsoft and supported by my manager and my peers. 
+
+Since separation (Jan 2020) I have also been doing personal training session 3 times a week to stay optimally fit and healthy, to stay on top of my physical & mental wellbeing, details [here](/marcseparation/dad_kids_sport/#my-rebuttal).
 
 ## No official Asperger's diagnosis
 

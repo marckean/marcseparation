@@ -42,6 +42,13 @@ It makes sense that I did ask the report writer how Julia died and more informat
 Ruth also looked me in the eye and told me that [she would be putting in the report that Julia committed suicide](/marcseparation/julia_spence_mental_health/#what-the-report-writer-told-me-in-person) - but this wasn't mentioned in the report at all. 
 
 The report writer is clearly trying to sugar coat this mental health aspect. 
+
+### Chloe's age
+
+![](../blobs/mistakes/report_chloe_age_assessment.png)
+
+- The Assessment was done October 14/15, 2021. Chloe's DOB is March 7, 2013. Chloe was eight and seven months old at the time of assessment, not eight and two months old. 
+
 ## Other mistakes
 
 ### Holiday time with the kids
