@@ -41,12 +41,26 @@ As evidence to show that I am super sensitive to humidity & places being stuffy,
 
 ![](../blobs/expertsopinions/air-con_invoice.png)
 
+## Page 41
+
 ### My view of the world, mother's housekeeping is lax, lazy
 
 ![](../blobs/expertsopinions/report_lazy_rich_experience.png)
 
 - This report writer saying that my view of the world is different to that of neurodevelopmentally average individuals in relation to the mother's housekeeping? The report writer hasn't even seen the matrimonial home, as shown [here](/marcseparation/living_conditions/) and [here](/marcseparation/living_comparisons/), the mother's housekeeping is beyond any form of acceptable. Just like her own mother, as per the pages I have provided links for on this site, Alex is totally lax & lazy when it comes to housekeeping, and no matter if you're a neurodevelopmentally average individual or with Asperger's, it's clear to see. 
 - As for saying that I have failed to make my time a rich one for the kids, this is not fair at all. Considering I haven't really had the chance to prove myself as a Dad with only 28.6% of the time spent with the kids, I haven't had the bandwidth nor time to really develop a rich experience for the kids. I get the kids, [they thaw out](/marcseparation/co_parenting/#different-behaviours-from-the-kids-upon-delivery), adjust with me, then you blink an eye and then they're back with their Mum again. More time with the kids would make a **huge** difference. 
+
+### Children muck up and whinge and irritate each other to get my attention
+
+![](../blobs/expertsopinions/report_kids_muck_up_my_attention.png)
+
+- This is crap, the kids do not muck up and whinge and irritate each other, more so that they annoy each other and this is not to get my attention at all. Kids are online happily playing with their friends, playing Roblox or Minecraft and I literally have to physically pull them out of the room, just so we can leave the home, to go shopping, to a park, walk, ice-cream etc etc. If I let them, the kids would be in their room all day every day on their computers. It's the new virtual Covid world, all their friends are online with computers, iPads, phones etc and all connected with audio and video.
+  
+  You have to remember that the kids don't have computers at their Mum's place, so when they come to my place with their computers, then flock to & quietly disappear to their room and jump online with all their friends. They use **Discord** or the **Messenger Kids** app on their phones to talk to their friends. 
+
+  As the report writer put it, *when they muck up*, it's not a cue that then need to go outside, rather than *mucking up*, there's commotion because one is annoying the other e.g. Charlie talking too loud or humming and it's annoying Chloe - that's it. 
+
+  If I let them, they'd be on their computers happily playing all day. But I do limit their time from the computers and we do go for a drive to places to get out, stretch out legs or hang out at a park. 
 
 ## Page 44/45
 
