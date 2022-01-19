@@ -41,8 +41,6 @@ As evidence to show that I am super sensitive to humidity & places being stuffy,
 
 ![](../blobs/expertsopinions/air-con_invoice.png)
 
-## Page 41
-
 ### My view of the world, mother's housekeeping is lax, lazy
 
 ![](../blobs/expertsopinions/report_lazy_rich_experience.png)
@@ -66,6 +64,13 @@ As evidence to show that I am super sensitive to humidity & places being stuffy,
 
   ![](../blobs/expertsopinions/report_internet_social_life.png)
 
+### jj
+
+![](../blobs/expertsopinions/report_kids_with_dad.png)
+
+- This report writer says that there's been some anticipatory anxiety prior and a transition period for some hours afterwards. It's all Alex, as Alex gets the kids worried about coming, as an example she sprays Chloe's teddies with her perfume every time. The kids still sleep in Alex's bed 
+
+## Page 41
 ## Page 44/45
 
 ![](../blobs/expertsopinions/report_week_about_friends_cousins.png)

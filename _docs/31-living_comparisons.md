@@ -31,6 +31,8 @@ However, this will give you a good idea that as Alex has remain in the matrimoni
 
 ###### Chloe's room
 
+It's to be noted that Chloe sleeps in Mummy's bed every single night from what Chloe & Charlie tell me, also considering the state of Chloe's room, it's currently a construction site, Chloe doesn't have a bedroom at the moment. 
+
 ![](../blobs/livingcomparisons/Alex_ChloeBedroom1.png)
 
 <br>
