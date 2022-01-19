@@ -118,6 +118,15 @@ A fun activity and challenge as a family, to build a gingerbread house. We all t
     src="https://www.youtube.com/embed/bplzhkNkYdA?playlist=bplzhkNkYdA&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+
+### Random dancing
+
+I love music, so do my kids. At times when the music is on (especially the kids favourite music), the kids have a bit of fun and dance, I love it as they are happy and provides me with some priceless entertainment. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/VnAHx1-3CJo?playlist=VnAHx1-3CJo&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
 ### Yes Day
 
 Similar to the [movie of the same name](https://www.youtube.com/watch?v=Y-3Vr8Ut8d0). I gave the kids points for doing jobs at my place. Chloe managed to get enough points to have her very own **yes day** - she was the boss for this very one day. So it was off to the shops, as this is what she wanted to do.

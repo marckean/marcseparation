@@ -68,7 +68,16 @@ As evidence to show that I am super sensitive to humidity & places being stuffy,
 
 ![](../blobs/expertsopinions/report_kids_with_dad.png)
 
-- This report writer says that there's been some anticipatory anxiety prior and a transition period for some hours afterwards. It's all Alex, purely psychological as Alex gets the kids all hyped up and worried about coming, as an example she sprays Chloe's teddies with her perfume every time. [Chloe still sleep in Alex's bed every night](/marcseparation/living_comparisons/#chloes-room), even today.
+- This report writer says that there's been some **anticipatory anxiety** prior and a transition period for some hours afterwards. It's all Alex and purely a fallacy and misconception as Alex gets the kids all hyped up and worried about coming, as an example she sprays Chloe's teddies with her perfume every time. [Chloe still sleep in Alex's bed every night](/marcseparation/living_comparisons/#chloes-room), even today in an attempt to tell the kids that the smell will remind them of her. This is what dogs do with their scent of their mother, not humans. The kids bring their teddies and they literally stick as they're covered in Alex's perfume. It's all a false sense of security which Alex has put onto the kids. 
+- As for my view and demands, this is a totally distorted view of what really happens, see [Dad is Fun](/marcseparation/dad_fun/), and [Dad is a good Dad](/marcseparation/dad_is_a_good_dad/) for real examples, my kids are **not alienated** from me at all - look at the videos and photos, look at the kids faces & their interactions, they are at home and 100% comfortable with me. 
+
+![](../blobs/expertsopinions/Kids_Relaxed.png)
+
+![](../blobs/expertsopinions/Kids_Relaxed2.png)
+
+![](../blobs/expertsopinions/Kids_Relaxed3.png)
+
+Some of the several fun times the kids have while at my place - they are **totally relaxed**, I love them to bits. 
 
 ## Page 41
 ## Page 44/45
