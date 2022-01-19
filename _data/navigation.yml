@@ -51,6 +51,8 @@ docs:
         url: /report_writer_influence/
       - title: "Report mistakes"
         url: /report_mistakes/
+      - title: "Experts Opinions"
+        url: /experts_opinions/
   - title: Father
     children:
       - title: "Dad is Fun"
