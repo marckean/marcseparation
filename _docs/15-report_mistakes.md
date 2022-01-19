@@ -23,7 +23,7 @@ As the audio of the sessions wasn't recorded either digitally or analog, there's
 
 ### Alex's sister Julia
 
-Alex only had mentally screwed up younger sister that committed suicide. This was **Julia**, not **Julie**.
+Alex only had one mentally screwed up younger sister that committed suicide. This was **Julia**, not **Julie**.
 
 ![](../blobs/mistakes/report_julia3.png)
 
