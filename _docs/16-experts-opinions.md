@@ -62,6 +62,10 @@ As evidence to show that I am super sensitive to humidity & places being stuffy,
 
   If I let them, they'd be on their computers happily playing all day. But I do limit their time from the computers and we do go for a drive to places to get out, stretch out legs or hang out at a park. 
 
+  Even my son Charlie says it here, the internet is his social life:
+
+  ![](../blobs/expertsopinions/report_internet_social_life.png)
+
 ## Page 44/45
 
 ![](../blobs/expertsopinions/report_week_about_friends_cousins.png)

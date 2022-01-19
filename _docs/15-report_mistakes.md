@@ -83,6 +83,10 @@ The report writer is clearly trying to sugar coat this mental health aspect.
 
 This is bullshit, I never said this, the report writer has gotten this twisted around. I stop the kids WiFi (sometimes) when either breakfast, lunch or dinner is ready. I hit the stop button, then within 10 seconds, kids happily run out and say "*Yes Dad*"? 
 
-We then eat, the I unblock the WiFi once we've finished eating. 
+We then eat at the dining room table, the I unblock the WiFi once we've finished eating. 
 
+As you can see here, my son Charlie said it himself, I turn off the WiFi (Internet) at mealtime, for when the kids need to come out to eat and sit at the table. 
 
+![](../blobs/mistakes/report_wifi_kids.png)
+
+It's not if the kids annoy each other. 
