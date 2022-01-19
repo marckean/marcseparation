@@ -5,7 +5,7 @@ excerpt: "Instructions and suggestions for upgrading the theme."
 last_modified_at: 2022-01-17
 toc: true
 ---
-There are many errors in this report. Like I was saying [here](/marcseparation/#the-family-report---why-were-here), someone's interpretation using a pen/paper to note things down is prone for for errors, humans are not perfect, they make mistakes. 
+There are many errors in this report. Like I was saying [here](/marcseparation/#the-family-report---why-were-here), someone's interpretation using a pen/paper to note things down is prone for errors, humans are not perfect, they make mistakes. 
 
 You need to seriously question the credibility of this report writer. 
 
