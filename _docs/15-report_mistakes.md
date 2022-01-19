@@ -47,7 +47,13 @@ The report writer is clearly trying to sugar coat this mental health aspect.
 
 ![](../blobs/mistakes/report_chloe_age_assessment.png)
 
-- The Assessment was done October 14/15, 2021. Chloe's DOB is March 7, 2013. Chloe was eight and seven months old at the time of assessment, not eight and two months old. 
+- This is incorrect, the Assessment was done October 14/15, 2021. Chloe's DOB is March 7, 2013. Chloe was eight and seven months old at the time of assessment, not eight and two months old. 
+
+### My current time with the kids
+
+![](../blobs/mistakes/report_current_time_with_kids.png)
+
+- This is incorrect, my current time with the kids is 4 nights a fortnight, "*one big block*" (as the judge called it when he made the order back in 2020)
 
 ## Other mistakes
 
