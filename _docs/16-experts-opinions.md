@@ -64,11 +64,11 @@ As evidence to show that I am super sensitive to humidity & places being stuffy,
 
   ![](../blobs/expertsopinions/report_internet_social_life.png)
 
-### jj
+### Kids with Dad
 
 ![](../blobs/expertsopinions/report_kids_with_dad.png)
 
-- This report writer says that there's been some anticipatory anxiety prior and a transition period for some hours afterwards. It's all Alex, as Alex gets the kids worried about coming, as an example she sprays Chloe's teddies with her perfume every time. The kids still sleep in Alex's bed 
+- This report writer says that there's been some anticipatory anxiety prior and a transition period for some hours afterwards. It's all Alex, as Alex gets the kids worried about coming, as an example she sprays Chloe's teddies with her perfume every time. [Chloe still sleep in Alex's bed every night](/marcseparation/living_comparisons/#chloes-room), even today.
 
 ## Page 41
 ## Page 44/45
