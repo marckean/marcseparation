@@ -90,3 +90,6 @@ Even before Alex and I were separated, the kids were totally out of control arou
 I would say to Alex how I did things being a big believer of **consistency** and **follow though**, and as much as Alex **admired** and **relied** on my back-up for parenting, she'd hate me giving her any tips or advice which would ultimately help her long term. 
 
 It was weird, Alex loved it how I was there to always step in for support, but as soon as I said anything about assisting her to parent, she straight away thought I was attacking and criticising her and this developed into an argument - always. Alex was not interested in developing her parenting skills at all, not from me or anyone else for that matter. 
+
+## Conversations about the kids
+
