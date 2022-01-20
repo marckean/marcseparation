@@ -5,7 +5,7 @@ excerpt: "Instructions on how to customize the theme's default set of layouts, i
 last_modified_at: 2022-01-17
 toc: true
 ---
-The current co-parenting is not working. Alex is under pressure and is not coping, adopting the [hands-off parenting approach](/marcseparation/alex_parenting/#alex-is-never-around) that her own mother took. The 28.6% of the time that I have the kids, there's been on-going health issues with Chloe. 
+The current co-parenting is not working. Alex is under pressure and is not coping, adopting the [Laissez-faire / hands-off parenting approach](/marcseparation/alex_parenting/#alexs-parenting-style) that her own mother took. The 28.6% of the time that I have the kids, there's been on-going health issues with Chloe. 
 
 - Chloe constantly has a sore tummy, for the past 2 years, something is causing it and Alex has done nothing to look into it properly other than band-aid fixes
 - Chloe has had a niggling cough for 4+ months, never went away. Alex hasn't done anything about it, I bought cough medicine which did seem to help somewhat, but she needs to be taken to ENT specialist to look into it further
