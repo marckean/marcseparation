@@ -118,6 +118,14 @@ Some of the several fun times the kids have while at my place - they are **total
 - NOT CORRECT - The report writer totally screwed this. She thinks that I take my daughter on a seven kilometre run? This is bullshit, I never have as I know my daughter, the's not into running at all, so I don't **expect** that from her at all. Charlie is slightly different and is more sporty than Chloe. Sometimes Charlie will come with me on a run, but this is only sometimes and when Charlie tells me that he wants to come. These times that Charlie comes with me, he doesn't last the distance and I slow down, wait for him and he generally sits out half way through and he's not forced at all.  **Ask the kids**, they'll confirm, Chloe has never run with me ever, Charlie has sometimes but never lasted the distance and I never pressured him.
 - As for the kids waiting in the car, sure they do. However, it's 6am in the morning, the car is locked, sun roof wide open for the heat to escape (heat rises), there's water bottles in the car, I have my 5G WiFi internet turned on, the kids are not in any **emotional distress** and are so happy waiting on their a android phones & headphones either playing games, talking to their friends online or watching Netflix etc. Plus the in the space of my 50 minute run, I am running past the car 4 times in this 50 minutes, the kids are safe and happy. After my run and when I drive home, I put the music on in the car and normally it's Chloe that whinges and tells me to turn off the music as she's **still** fixated on her phone. 
 
+### Kids interpersonal relationships
+
+![](../blobs/expertsopinions/report_interpersonal_relationships.png)
+
+- The report writer is not qualified to make this comment. What happened in my childhood was in my childhood and left in my childhood. I am now an adult. The old saying "***What ever doesn't kill you makes you stronger***" I have a different outlook on life now that I am an adult and much different to that when I was a child. 
+
+## Page 42
+
 ## Page 44/45
 
 ![](../blobs/expertsopinions/report_week_about_friends_cousins.png)
