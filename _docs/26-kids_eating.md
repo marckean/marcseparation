@@ -10,23 +10,27 @@ toc: true
 
 ![](../blobs/reportforcefeeding/report_forcefeeding1.png)
 
-- Bec said *He was force-feeding the children but no-one has ever stopped it*
+- **Bec said** *He was force-feeding the children but no-one has ever stopped it*
 
 ![](../blobs/reportforcefeeding/report_forcefeeding5.png)
 
-- Alex said *He insisted that the children eat everything on their plate*
+- **Alex said** *He insisted that the children eat everything on their plate*
 
-### Report writers comment
+### Report writers comment 1
 
 ![](../blobs/reportforcefeeding/report_forcefeeding2.png)
 
-### Report writers comment
+### Report writers comment 2
 
 ![](../blobs/reportforcefeeding/report_forcefeeding3.png)
 
-### Report writers comment
+### Report writers comment 3
 
 ![](../blobs/reportforcefeeding/report_forcefeeding4.png)
+
+### Report writers comment 4
+
+![](../blobs/reportforcefeeding/report_forcefeeding6.png)
 
 ## My rebuttal
 

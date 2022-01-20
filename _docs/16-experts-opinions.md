@@ -81,7 +81,7 @@ Some of the several fun times the kids have while at my place - they are **total
 
 ## Page 41
 
-### 
+### My temper, shouting at kids
 
 ![](../blobs/expertsopinions/report_temper_shouting.png)
 
@@ -90,6 +90,13 @@ Some of the several fun times the kids have while at my place - they are **total
 - So no, the kids won't turn out like pariahs, they won't turn out like social outcasts at all. 
 - As for the **lack of flexibility with the mother**, she is impossible to deal with, as until settlement, it's all war for her. As you can see by my numerous pages on this site and as you can see from the various comments in this report from both Bec & Alex, the mother hates me, her friends hate me, I have already proven the fact that Alex is playing "*the game*" and my evidence I have [provided here](/marcseparation/child_support/) where Alex even says it herself, **the primary motivation is money** (child support), **the kids are secondary** to her and I have outlined Alex's lax / hands-off parenting style [here](/marcseparation/alex_parenting/).
 
+### Eating everything on plate
+
+![](../blobs/expertsopinions/report_eating_everything_on_plate.png)
+
+- It says here about it's a mistake getting the kids to eat everything on their plate. [As I have already mentioned](/marcseparation/kids_eating/) on this site, its a mistake not understanding my kids, when was the last time they ate, how much they ate last time, gauging how much they can easily eat without force feeding them. It's about knowing my own kids which I do. THen I serve them proportions relevant to their size and the quantity of food that they can comfortably eat.
+- In the US and many other Western countries, [we’re taught that it’s rude to leave food on your plate](https://matadornetwork.com/read/7-food-etiquette-rules-around-world/) because it somehow indicates you didn’t enjoy your meal.
+- I too was taught this as a kid, but again, like me, my parents made sure they portioned controlled the amount of food on my plate so that finishing everything on my plate was easily achievable. 
 
 ## Page 44/45
 

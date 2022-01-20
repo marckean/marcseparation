@@ -55,6 +55,11 @@ The report writer is clearly trying to sugar coat this mental health aspect.
 
 - This is incorrect, my current time with the kids is 4 nights a fortnight, "*one big block*" (as the judge called it when he made the order back in 2020)
 
+![](../blobs/mistakes/report_current_time_with_kids2.png)
+
+- The report writer is saying here that I currently have the kids for **two days a fortnight**.
+- Again here, the report writer has no clue at all of the time I currently have with the kids. As per the interim orders, I have the kids for **four nights a fortnight**, not **two days a fortnight**.
+
 ## Other mistakes
 
 ### Holiday time with the kids
