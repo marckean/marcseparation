@@ -42,11 +42,19 @@ I sat down with both of my kids, interviewed & recorded them both (*with their k
 
 Charlie is constantly going to places by himself with his scooter, e.g. to school and the park. We know that [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can seem to manage and is very much the same as how Alex's own mum brought the kids up.
 
-### Alex's parenting style
+While at the park, Charlie and other parents (**Jackie** (*mother of one of Charlie's friends*)) tell me that sometimes at the park no parents/adults are there to supervise, and what's more if there is a parent, it's not biological parent of Charlie. One of the stories I heard was that while Charlie was at the park with his friends, one of the parents left to go and get a coffee then came back, but was gone for about 20 minutes.
+
+<audio src="../audio/Charlie_going_to_park_by_himself.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
+This same parent (**Jackie** (*mother of one of Charlie's friends*)) also went on to tell me that there was a time that she got a phone call from Charlie one afternoon at the park. Charlie called Jackie as he was tying to get hold of Mummy (Alex) using his mobile phone, however, Alex wasn't at home and wasn't picking up her phone. So not only was Charlie at the park himself, but Alex wasn't even at home and not contactable on her phone.
+
+## Alex's parenting style
 
 Alex parents the kids just like her own mother parented her. The mother (Maree) was very hands-off or Laissez-faire style of parenting. **Laissez-faire** is a French term meaning "***to let people do as they please***." Applied to parenting, the term refers to a permissive style in which parents avoid providing guidance and discipline, make no demands for maturity, and impose few controls on their child's behaviour.
 
-We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Mum's home when she was only 14 years old.  Now look how **Julia** turned out, she's DEAD! Yes, it's the worst extreme, but if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced e.g. 50/50 - would greatly benefit Alex, give her more time and make it much easier for her to manage things herself, giving her some time back, furthermore, even though Alex has her Laissez-faire parenting style, it wouldn't matter so much as the kids would have a balance with me for the other half.
+We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Mum's home when she was only 14 years old.  Now look how **Julia** turned out, she's DEAD! Yes, it's the worst extreme, but if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced e.g. 50/50 - would equally benefit Alex as well as the kids, give Alex more time and make it much easier for her to manage things herself by giving her some time back, furthermore, even though Alex has a Laissez-faire parenting style, it wouldn't matter so much as the kids would have a balance with my parenting style for the other half.
 
 All the literature on the topic of shared parenting:
 - [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/)
@@ -54,14 +62,7 @@ All the literature on the topic of shared parenting:
 - [Scientific research for shared parenting](/marcseparation/my_initial_comments/#scientific-research-for-shared-parenting)
 - [Nielsen’s Research: Divorce & Shared Parenting](/marcseparation/appendix_nielsens_research/)
 
-While at the park, Charlie and other parents (**Jackie** (*mother of one of Charlie's friends*)) tell me that sometimes at the park no parents/adults are there to supervise, and what's more if there is a parent, it's not biological parent of Charlie. One of the stories I heard was that while Charlie was at the park with his friends, one of the parents left to go and get a coffee then came back, but was gone for about 20 minutes.
-
-<audio src="../audio/Charlie_going_to_park_by_himself.mp3" type="audio/mpeg" controls>
-  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
-</audio>
-
-This same parent (**Jackie** (*mother of one of Charlie's friends*)) also went on to tell me that there was a time that she got a phone call from Charlie one afternoon at the park. Charlie called Jackie as he was tying to get hold of Mummy (Alex) using his mobile phone, however, Alex wasn't at home and wasn't picking up her phone. So not only was Charlie at the park himself, but Alex wasn't even at home and not contactable on her phone. 
-### Dad and doesn't take kids to the park (False opinion from the report)
+## Dad and doesn't take kids to the park (False opinion from the report)
 
 What Charlie is meaning by this statement below, he means like what happens at his mothers place. Currently he's with his mother 71.4% of the time, so things that happen (rightly or wrongly) with his mother would seem routine to him:
 
@@ -108,7 +109,8 @@ This is what I mentioned in the report:
 
 ![](../blobs/apexparenting/report_vic_5starthotel.png)
 
-There were other high paying guest at the hotel, it was embarrassing and Henry was running around out of control around the 5 start hotel pool. But just like her mother, Vic was totally in the background and hand-off to it all. 
+There were other high paying guest at the hotel, it was embarrassing and Henry was running around out of control around the 5 start hotel pool. But just like her mother, Vic was totally in the background and hand-off to it all.
+
 ### Saturday mornings
 
 As it says in the report:
