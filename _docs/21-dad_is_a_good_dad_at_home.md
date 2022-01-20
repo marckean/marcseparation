@@ -1,6 +1,6 @@
 ---
-title: "Dad is a good Dad"
-permalink: /dad_is_a_good_dad/
+title: "Dad is a good Dad, at home"
+permalink: /dad_is_a_good_dad_at_home/
 excerpt: "How to quickly install and setup Minimal Mistakes for use with GitHub Pages."
 last_modified_at: 2022-01-17
 toc: true
@@ -26,7 +26,7 @@ The report contained the following:
 
 ![](../blobs/lovedad/report_bec_bad_dad3.png)
 
-- Utter bullshit, as per this site, I have published pages with a lot of content to quash this - [I am fun](/marcseparation/dad_fun/), [I am a good Dad](/marcseparation/dad_is_a_good_dad/) and [I take the kids to the park](/marcseparation/kids_park/).
+- Utter bullshit, as per this site, I have published pages with a lot of content to quash this - [I am fun](/marcseparation/dad_fun/), [Dad is a good Dad at home](/marcseparation/dad_is_a_good_dad_at_home/), [Dad is a good Dad outside](/marcseparation/dad_is_a_good_dad_outside/) and [I take the kids to the park](/marcseparation/kids_park/).
 
 ![](../blobs/lovedad/report_bad_dad1.png)
 
@@ -40,7 +40,7 @@ The report contained the following:
 
 Photos and videos speak for themselves. 
 
-## The below some videos of the kids at my place
+## The below are some videos of the kids and I having heaps of fun inside the home
 
 Kids to excited at my place...
 

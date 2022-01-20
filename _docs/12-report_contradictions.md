@@ -96,9 +96,9 @@ In 49 **Alex said** "*The children find it hard to stand up for themselves and f
 
 If we weigh it all up, there's a totally different focus on Chloe here between Alex and Bec with conflicting information. Chloe and I have no issues together, when we're together. We get on perfectly fine, we laugh and chat, we naturally connect, she understands me and I understand her. Like me, [Chloe has Asperger's](/marcseparation/chloe/) and I simply **get** Chloe more than neurotypical people such as Alex, or Bec. 
 
-Kids don't struggle around me, see this section on [Dad is fun](/marcseparation/dad_fun/) and [Dad is a good Dad](/marcseparation/dad_is_a_good_dad/), there's heaps of content, the kids are having so much fun and are more than happy when they're with me. 
+Kids don't struggle around me, see this section on [Dad is fun](/marcseparation/dad_fun/), [Dad is a good Dad at home](/marcseparation/dad_is_a_good_dad_at_home/) and [Dad is a good Dad outside](/marcseparation/dad_is_a_good_dad_outside/), there's heaps of content, the kids are having so much fun and are more than happy when they're with me. 
 
-Another example I posted [here](/marcseparation/dad_is_a_good_dad/#big-boing-birtinya-qld), this is when we went to Queensland to visit the paternal grandparents. I didn't want to go on the trampolines with the kids as I thought I was too old, but it was my daughter **Chloe** that twisted my arm to do this. She wouldn't have twisted my arm so much if the above statements were true - Chloe doesn't not struggle with me and the kids are not intimidated at all. 
+Another example I posted [here](/marcseparation/dad_is_a_good_dad_outside/#big-boing-birtinya-qld), this is when we went to Queensland to visit the paternal grandparents. I didn't want to go on the trampolines with the kids as I thought I was too old, but it was my daughter **Chloe** that twisted my arm to do this. She wouldn't have twisted my arm so much if the above statements were true - Chloe doesn't not struggle with me and the kids are not intimidated at all. 
 
 ### My time with the kids
 

@@ -57,8 +57,10 @@ docs:
     children:
       - title: "Dad is Fun"
         url: /dad_fun/
-      - title: "Dad is a good Dad"
-        url: /dad_is_a_good_dad/
+      - title: "Dad's a good Dad, at home"
+        url: /dad_is_a_good_dad_at_home/
+      - title: "Dad's a good Dad, outside"
+        url: /dad_is_a_good_dad_outside/
       - title: "Kids at the Park"
         url: /kids_park/
       - title: "Kids at the Park, videos"
