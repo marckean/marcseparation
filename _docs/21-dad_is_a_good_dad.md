@@ -40,7 +40,7 @@ The report contained the following:
 
 Photos and videos speak for themselves. 
 
-### The below some videos of the kids at my place
+## The below some videos of the kids at my place
 
 Kids to excited at my place...
 
@@ -54,23 +54,6 @@ Of course the kids are faking this, but they're having so much fun together!
     src="https://www.youtube.com/embed/Zqry3yZ9eJg?playlist=Zqry3yZ9eJg&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-### Australia Zoo
-
-December 2021, the paternal grandfather, myself and the kids went to Australia Zoo for the day. 
-
-<iframe width="420" height="315"
-    src="https://www.youtube.com/embed/O8NhnRvIjVM?playlist=O8NhnRvIjVM&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
-</iframe>
-
-### Big Boing, Birtinya, QLD
-
-December 2021, the kids and I went to Big Boing for the day. Chloe literally twisted my arm, she so desperately wanted me to jump & climb with them. If it wasn't for my [personal training sessions](/marcseparation/dad_kids_sport/#my-rebuttal), I would have struggled. 
-
-<iframe width="420" height="315"
-    src="https://www.youtube.com/embed/R1dAO4jOdlk?playlist=R1dAO4jOdlk&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
-</iframe>
-
-
 ### Rubik’s Cube Challenge
 
 Rubik’s Cube Challenge - I messed it up and Charlie Kean solved it! Hats off to Charlie, the little genius!
@@ -83,18 +66,7 @@ See what you can do when you focus and apply yourself, you can do anything…
     src="https://www.youtube.com/embed/4BIsmeyN9wI?playlist=4BIsmeyN9wI&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-
-### Clip & Climb | Gosford, NSW, Jan 2021
-
-Kids and I experienced this awesome place, we all had so much fun. 
-
-<iframe width="420" height="315"
-    src="https://www.youtube.com/embed/_58f7he47qc?playlist=_58f7he47qc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
-</iframe>
-
-## Home activities
-
-### Charlie & Chole helped to build their brand new loft bed from IKEA
+### Charlie & Chloe helped to build their brand new loft bed from IKEA
 
 Great activity for the kids to really get involved in something that we can all contribute to as a family, learn some new skills and really enjoy the finished result. 
 
@@ -125,6 +97,48 @@ I love music, so do my kids. At times when the music is on (especially the kids 
 
 <iframe width="420" height="315"
     src="https://www.youtube.com/embed/VnAHx1-3CJo?playlist=VnAHx1-3CJo&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+### Playing/signing on my legs
+
+Another example, you can see the kids are more than comfortable and relaxed with me. Totally not alienated from me at all. They love me and I love them. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/Lgved-Kvb2A?playlist=Lgved-Kvb2A&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+## Outside the home activities
+
+### Australia Zoo
+
+December 2021, the paternal grandfather, myself and the kids went to Australia Zoo for the day. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/O8NhnRvIjVM?playlist=O8NhnRvIjVM&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+### Big Boing, Birtinya, QLD
+
+December 2021, the kids and I went to Big Boing for the day. Chloe literally twisted my arm, she so desperately wanted me to jump & climb with them. If it wasn't for my [personal training sessions](/marcseparation/dad_kids_sport/#my-rebuttal), I would have struggled. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/R1dAO4jOdlk?playlist=R1dAO4jOdlk&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+### Clip & Climb | Gosford, NSW, Jan 2021
+
+Kids and I experienced this awesome place, we all had so much fun. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/_58f7he47qc?playlist=_58f7he47qc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+### Charlie showing off his muscles
+
+Some ad-hoc fun at the shops, Charlie wanted to demonstrate his muscles. I thought it was pretty fun and the kids also loved it. Simple things are often the best. You can see the kids are more than comfortable and relaxed with me. Totally not alienated from me at all. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/ZVgyjLI4MuY?playlist=ZVgyjLI4MuY&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
 ### Yes Day
