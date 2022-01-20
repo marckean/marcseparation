@@ -133,6 +133,14 @@ Kids and I experienced this awesome place, we all had so much fun.
     src="https://www.youtube.com/embed/_58f7he47qc?playlist=_58f7he47qc&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
+### The Entrance NSW, The fair, October 2021
+
+An example of some of the things we do when I have the kids, we go for a drive and get out away from the home, away from our computers and this weekend in October was one of those times and there just happened to be a fair happening at The Entrance on the Central Coast. So I couldn't say no to buying them tickets for the kids to go and have a whole heap of fun. 
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/fpo9foj23rM?playlist=fpo9foj23rM&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
 ### Charlie showing off his muscles
 
 Some ad-hoc fun at the shops, Charlie wanted to demonstrate his muscles. I thought it was pretty fun and the kids also loved it. Simple things are often the best. You can see the kids are more than comfortable and relaxed with me. Totally not alienated from me at all. 
