@@ -105,11 +105,24 @@ Some of the several fun times the kids have while at my place - they are **total
 
 - As for punishing my kids, define **punishing**... Is this corporal punishment that involves infliction of physical pain upon the kids? Well as you can read in the report, I don't smack my kids and haven't done so for a very very very long time, it's even acknowledged by Alex herself in the report. No matter how my parents raised me is beside the point, I'm a smart man and I decided a long time ago to never use corporal punishment. So, it's not corporal punishment. I don't even need to anything like this anyway. I am a big believer of **consistency** and **follow through** and I have punctilious adherence to this parenting style with my kids. This parenting style is simple, and it simply works. The kids know me, know me well, they know the boundaries of what's right and what's wrong. Should they ever do something wrong, they get in trouble for it so they know it's wrong, they learn that it's not right, then they can continue on to be the good kids that they are. Kids are kids, they are not born knowing what's right or wrong, they need to learn this, that's why parents exist. 
 
+### Asperger's syndrome
+
+![](../blobs/expertsopinions/report_aspergers.png)
+
+- If you read online, the report writer is not an expert in people with Asperger's syndrome. Regardless, see [Dad is Fun](/marcseparation/dad_fun/), [Dad is a good Dad at home](/marcseparation/dad_is_a_good_dad_at_home/) and [Dad is a good Dad outside](/marcseparation/dad_is_a_good_dad_outside/) - videos and photos tell a thousand words and my kids are more than comfortable, they are secure with me and more than assured.
+
+### Kids & running
+
+![](../blobs/expertsopinions/report_kids_run.png)
+
+- NOT CORRECT - The report writer totally screwed this. She thinks that I take my daughter on a seven kilometre run? This is bullshit, I never have as I know my daughter, the's not into running at all, so I don't **expect** that from her at all. Charlie is slightly different and is more sporty than Chloe. Sometimes Charlie will come with me on a run, but this is only sometimes and when Charlie tells me that he wants to come. These times that Charlie comes with me, he doesn't last the distance and I slow down, wait for him and he generally sits out half way through and he's not forced at all.  **Ask the kids**, they'll confirm, Chloe has never run with me ever, Charlie has sometimes but never lasted the distance and I never pressured him.
+- As for the kids waiting in the car, sure they do. However, it's 6am in the morning, the car is locked, sun roof wide open for the heat to escape (heat rises), there's water bottles in the car, I have my 5G WiFi internet turned on, the kids are not in any **emotional distress** and are so happy waiting on their a android phones & headphones either playing games, talking to their friends online or watching Netflix etc. Plus the in the space of my 50 minute run, I am running past the car 4 times in this 50 minutes, the kids are safe and happy. After my run and when I drive home, I put the music on in the car and normally it's Chloe that whinges and tells me to turn off the music as she's **still** fixated on her phone. 
+
 ## Page 44/45
 
 ![](../blobs/expertsopinions/report_week_about_friends_cousins.png)
 
-- This is not fair to say this, because I haven't had the same length of time with the kids,than that of what Alex has had with the kids. As I have only had the kids for 28.6% of the time, I haven't had the luxury of meeting the kids friends parents, organising sleepovers, or play dates. Should I have the kids longer, that is totally the plan, and has always been the thought in the back of my mind for me to meet the parents of the kids friends, also I would love it to be able to have a working relationship with the kids cousins parents (Alex's sister & brother in law) Andrew and Victoria, so the kids can continue their own relationship with their Sydney cousins - Henry and Chelsea. I don't hate Alex and that side fo the family, and am quite prepared to make this work.
+- This is not fair to say this, because I haven't had the same length of time with the kids compared to what Alex has had with the kids. As I have only had the kids for 28.6% of the time, I haven't had the same luxury of meeting the kids friends parents, organising sleepovers, or play dates. Should I have the kids longer, it's always been the plan, to meet the parents of the kids friends. I'd also love to be able to have a working relationship with the kids cousins parents (Alex's sister (Victoria) & brother in law (Andrew)), so the kids can continue their own relationship with their Sydney cousins - Henry and Chelsea. I don't hate Alex and her side of the family, and am quite prepared to make this work for the benefit of my kids.
 
     I have already got a list of the kids **primary friends** parents and their phone numbers in my phone:
 
@@ -122,13 +135,13 @@ Some of the several fun times the kids have while at my place - they are **total
     | Charlie | Nicholas  | Betty (Mum), Benny (Dad) |
     | Charlie | Eden | Rachael (Mum), Masa (Dad) |
 
-As you can see, I am all over it. With only 28.6% of the time that I have the kids, it's challenging.
+As you can see, I am all over it. With only 28.6% of the time that I have the kids, I already have a head start, but it's challenging.
 
-During school holidays, the kids already hang out with their friends in which I organise through this contact list above. 
+During school holidays, as I have the kids for a much longer period of time, the kids already hang out with their friends in which I organise through this contact list above. 
 
-However during non-school holiday time, the time I have with the kids is greatly reduced so its different obviously as we are time poor with only the one weekend and I generally spend the time and play with them instead. During non-school holiday weekends, I try and maximise my time with the kids as I only see the kids for the lesser time. 
+However during non-school holiday time, the time I have with the kids is greatly reduced so its obviously different as we are time poor with only the one weekend (four nights) a fortnight and I generally tend to maximise this time that I have with the kids, as I get much less time. 
 
-Should I get more time with the kids, week on / week off, then even during non-school holidays I'd adopt the same as school holidays and there would totally be more friend time with the kids.
+Should I get more time with the kids, week on / week off as an example, then even during non-school holidays I'd adopt the same as school holidays practice and there would totally be more friend time with the kids.
 
 
 
