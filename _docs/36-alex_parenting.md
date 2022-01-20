@@ -22,7 +22,7 @@ toc: true
 
 ![](../blobs/charlieparkbyhimself/report_charlieparkbyhimself4.png)
 
-- This is from one of the **expert's comments** at the end of the report.
+- This is from one of the **expert's comments** at the end of the report. The expert doesn't see anything wrong with Charlie going to the park, as she doesn't understand that he is un-supervised by an adult at times. 
 
 ### Email sent to Alex August 31, 2021:
 
