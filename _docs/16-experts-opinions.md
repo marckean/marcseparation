@@ -89,6 +89,7 @@ Some of the several fun times the kids have while at my place - they are **total
 - As for me practising punctilious adherence to rules? The report writer is really hanging onto this tiny point-in-time (one hour, on Friday, 15 October 2021), the report writer has really focused on this one **rule** episode from her obscured observation of me and the kids on that day in which I have already commented [above](/marcseparation/experts_opinions/#fun-to-serious-tense-in-the-room) and further [here](/marcseparation/my_initial_comments/#interactions-with-kids-in-front-of-the-report-writer), it was far from a suitable environment with unforeseen challenges to deal with i.e. the environment that the report writer had us in and the kids not having a break etc - not a situation to be fairly judged on and to take as gospel - it wasn't a natural environment for the kids and I and as such can't be judged fairly based on that.
 - So no, the kids won't turn out like pariahs, they won't turn out like social outcasts at all. 
 - As for the **lack of flexibility with the mother**, she is impossible to deal with, as until settlement, it's all war for her. As you can see by my numerous pages on this site and as you can see from the various comments in this report from both Bec & Alex, the mother hates me, her friends hate me, I have already proven the fact that Alex is playing "*the game*" and my evidence I have [provided here](/marcseparation/child_support/) where Alex even says it herself, **the primary motivation is money** (child support), **the kids are secondary** to her and I have outlined Alex's lax / hands-off parenting style [here](/marcseparation/alex_parenting/).
+- As for punishing my kids, define punishing... Is this corporal punishment and involves infliction of physical pain upon the kids? Well as you can read in the report, I don't smack my kids and haven't done so for a very very long time, it's even acknowledged by Alex herself in the report. So, it's not corporal punishment. I don't have to anything like this. I am a big believer of **consistency** and **follow through** and I have punctilious adherence to this parenting style. This simple parenting style simply works. They know me, they know rules of what's right and what's wrong. Should they ever do something wrong, they get in trouble for it, to learn that it's not right they can continue to be good kids. 
 
 ### Eating everything on plate
 
@@ -97,6 +98,10 @@ Some of the several fun times the kids have while at my place - they are **total
 - It says here about it's a mistake getting the kids to eat everything on their plate. [As I have already mentioned](/marcseparation/kids_eating/) on this site, its a mistake not understanding my kids, when was the last time they ate, how much they ate last time, gauging how much they can easily eat without force feeding them. It's about knowing my own kids which I do. THen I serve them proportions relevant to their size and the quantity of food that they can comfortably eat.
 - In the US and many other Western countries, [we’re taught that it’s rude to leave food on your plate](https://matadornetwork.com/read/7-food-etiquette-rules-around-world/) because it somehow indicates you didn’t enjoy your meal.
 - I too was taught this as a kid, but again, like me, my parents made sure they portioned controlled the amount of food on my plate so that finishing everything on my plate was easily achievable. 
+
+### Punishment
+
+![](../blobs/expertsopinions/report_punishment.png)
 
 ## Page 44/45
 
