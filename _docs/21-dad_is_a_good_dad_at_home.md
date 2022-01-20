@@ -105,6 +105,6 @@ Another example, you can see the kids are more than comfortable and relaxed with
 
 ## Epilogue
 
-Kids are great! Kids are the BEST things in my life.
+My kids are absolutely awesome! My kids are the BEST things in my life.
 
 For proof of me being a good Dad **outside the home**, please visit the other page, [Dad is fun outside the home](/marcseparation/dad_is_a_good_dad_outside/).

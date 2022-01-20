@@ -119,6 +119,6 @@ Before Alex and I separated, the paternal grandparents (my Mum & Dad) came to vi
 
 ## Epilogue
 
-Kids are great! Kids are the BEST things in my life.
+My kids are absolutely awesome! My kids are the BEST things in my life.
 
 For proof of me being a good Dad **inside the home**, please visit the other page, [Dad is fun inside the home](/marcseparation/dad_is_a_good_dad_at_home/).
