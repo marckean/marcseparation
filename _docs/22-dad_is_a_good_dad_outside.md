@@ -8,8 +8,6 @@ toc: true
 
 [//]: # (margin:top right bottom left)
 
-
-
 ## Statements from the report
 
 The report contained the following:
@@ -35,10 +33,9 @@ The report contained the following:
 ## My rebuttal
 
 
-
 ### I am not a bad Dad
 
-Photos and videos speak for themselves. 
+Photos and videos speak for themselves, they are trust worthy and they don't lie. These video's below are my proof of me being a good Dad **outside the home**. For proof of me being a good Dad **inside the home**, please visit the other page, [Dad is fun inside the home](/marcseparation/dad_is_a_good_dad_at_home/).
 
 ## The below are some videos of the kids and I having heaps of fun outside the home
 
