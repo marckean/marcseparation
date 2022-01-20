@@ -52,7 +52,7 @@ This same parent (**Jackie** (*mother of one of Charlie's friends*)) also went o
 
 ## Alex's parenting style
 
-Alex parents the kids just like her own mother parented her. The mother (Maree) was very hands-off or Laissez-faire style of parenting. **Laissez-faire** is a French term meaning "***to let people do as they please***." Applied to parenting, the term refers to a permissive style in which parents avoid providing guidance and discipline, make no demands for maturity, and impose few controls on their child's behaviour.
+Alex parents the kids just like her own mother parented her. The mother (Maree) was very hands-off or Laissez-faire style of parenting. [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) is a French term meaning "***to let people do as they please***." Applied to parenting, the term refers to a permissive style in which parents avoid providing guidance and discipline, make no demands for maturity, and impose few controls on their child's behaviour.
 
 We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Mum's home when she was only 14 years old.  Now look how **Julia** turned out, she's DEAD! Yes, it's the worst extreme, but if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced e.g. 50/50 - would equally benefit Alex as well as the kids, give Alex more time and make it much easier for her to manage things herself by giving her some time back, furthermore, even though Alex has a Laissez-faire parenting style, it wouldn't matter so much as the kids would have a balance with my parenting style for the other half.
 
@@ -87,7 +87,7 @@ Seems to me that the way things are going, Alex is adopting her own mothers pare
 
 This statement is slightly incorrect. It's actually the **maternal** mother **Maree** that allowed her very own daughter (**Julia Spence** (now dead)) to move out of her home when she was only 14. It's a bit worrying don't you think, if Alex is allowed to adopt the same parenting style of her mother, look how Julia turned out - she's now DEAD!
 
-**It can't get any clearer than this**, Alex is behind the scenes and very much hands-off. My daughter Chloe interviewed alone said it herself:
+**It can't get any clearer than this**, Alex is behind the scenes and very much has a [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) / hands-off parenting style. My daughter Chloe interviewed alone said it herself:
 
 ![](../blobs/apexparenting/report_alexparenting4.png)
 
@@ -103,7 +103,7 @@ Why doesn't Alex put the kids in after school care? Well just like I mentioned i
 
 ### Aunty Vic - 5 star hotel pool
 
-Just like Alex's sister Victoria. Vic also parents just like her mother, same mother as Alex - hands-off. 
+Just like Alex's sister Victoria. Vic also parents just like her mother, same mother as Alex - [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) style. 
 
 This is what I mentioned in the report:
 
@@ -142,7 +142,7 @@ The children are left to their own devices. As I mentioned [here](/marcseparatio
 Alex came from a broken family and never had proper structure growing up.
   - Her Dad was dead when she was a teenager
   - Her Dad broke up with the Mum and moved out when Alex was six years old
-  - Her Mum was very much hands-off parenting
+  - Her Mum was very much hands-off / [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) parenting
 
 My kids need structure, then need to learn routine, rules, values & authority and this is exactly what I can provide. 
 

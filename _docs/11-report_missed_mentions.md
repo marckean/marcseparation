@@ -54,7 +54,7 @@ However this doesn't stop the kids:
 
 Alex's friend Bec (Rebecca) gave Charlie an iPad as a gift to use at Alex's place. As Alex and Bec weren't tech savvy, they simply handed it to Charlie and said, "**here you go**". [It's very well documented](https://support.apple.com/en-us/HT2013040), that you can **use parental controls on your child's iPhone, iPad, and iPod touch**. However this wasn't setup, so Charlie has free rein to anything that he wanted including all inappropriate content. What's more, Bec had signed Charlie in applications e.g. **Netflix** & **Disney+** with her account and no kids profiles were setup and no password/PIN protection from the adult content on **Netflix** & **Disney+**. It wasn't until months later that Charlie brought the iPad to my place, I had a look at it and I was shocked to see that my son (aged 10) had access to literally any movie he chose to watch with no protection at all from any inappropriate content. 
 
-This is another example of Alex's hands-off parenting style, leaves it up to Bec (someone else) to sign in with their account on **Netflix** & **Disney+**. It's not Bec's kids, she should just stay out of it. 
+This is another example of Alex's [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) / hands-off parenting style, leaves it up to Bec (someone else) to sign in with their account on **Netflix** & **Disney+**. It's not Bec's kids, she should just stay out of it. 
 
 Alex doesn't even have an account for **Netflix** & **Disney+** and is using Bec's account instead. As I mentioned, Alex is as she's [living well beyond her means](/marcseparation/child_support/) and simply cannot afford the monthly cost of the streaming services. 
 

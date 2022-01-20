@@ -24,13 +24,13 @@ On January 16, 2022, I was back at the house and noticed that not the railing is
     src="https://www.youtube.com/embed/rW6g---2QLw?playlist=rW6g---2QLw&loop=1&start=81&end=89&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
 </iframe>
 
-## Alex is hands off parenting
+## Alex is [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) / hands-off parenting
 
-As per [this section](/marcseparation/alex_parenting/#alex-is-never-around). Alex is following the same parenting style as her own mother. We can see how this turned out for Alex's sister Julia, she killed herself.
+As per [this section](/marcseparation/alex_parenting/#alexs-parenting-style). Alex is following the same parenting style as her own mother. We can see how this turned out for Alex's sister Julia, she killed herself.
 
 Julia had a real drinking problem and was a chain smoker amongst having bipolar disorder, not being able to hold down a job and as Bec said, she's a "*bad egg*". 
 
-Leaving the home at 14, no father in her life (as he was dead at the time), the mother was behind the scenes as Julia lived in share accommodation with Alex and Alex's gay friend Kristan. Julia lacked the support and guidance needed to develop into a decent woman to have somewhat of a chance of a normal life. 
+Leaving the home at 14, and no father in her life (as he was interstate at the time, then died soon after), the mother was exercising a [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) *behind the scenes* parenting style as Julia lived in share accommodation with Alex and Alex's gay friend Kristan. Julia lacked the support, guidance and discipline needed to develop into a decent woman to have somewhat of a chance of a normal life. 
 
 ![](../blobs/reportjulia/julia_drunk1.png)
 

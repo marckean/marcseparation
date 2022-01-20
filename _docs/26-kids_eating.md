@@ -78,7 +78,7 @@ Seriously, my kid is my kid don't forget and he has a massive appetite as he has
 
 #### Aunty Vic starves the kids
 
-As Aunty Vic looks after the kids very often, as Alex's way of parenting is hands off and relies on others to look after the kids. The kids (both Charlie & Chloe) constantly complain that they hardly get fed much food at all. 
+As Aunty Vic looks after the kids very often, as Alex's way of parenting is [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) / hands-off and relies on others to look after the kids. The kids (both Charlie & Chloe) constantly complain that they hardly get fed much food at all. 
 
 I heard several times that Aunty Vic starves the kids by giving them one egg & lettuce sandwich to share between both of them, so half each for lunch. Other times Aunty Vic buys them a **McDonalds** cheese burger sometimes with no meat patty and no cheese (just the pickle) as it's cheap, around 30c. 
 
