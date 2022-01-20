@@ -42,10 +42,11 @@ I sat down with both of my kids, interviewed & recorded them both (*with their k
 
 Charlie is constantly going to places by himself with his scooter, e.g. to school and the park. We know that [it's super hard being a single parent](/marcseparation/my_initial_comments/#single-parent), and this is one of the only ways that Alex can seem to manage and is very much the same as how Alex's own mum brought the kids up.
 
-Alex parents the kids just like her own mother parented her. The mother (Maree) was very hands-off or Laissez-faire style of parenting.
-**Laissez-faire** is a French term meaning "***to let people do as they please***." Applied to parenting, the term refers to a permissive style in which parents avoid providing guidance and discipline, make no demands for maturity, and impose few controls on their child's behaviour.
+### Alex's parenting style
 
- We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Munm's home when she was only 14 years old.  Now look how **Julia** turned out, she's DEAD! Yes, it's the worst extreme, but if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced e.g. 50/50 - would greatly benefit Alex, give her more time and make it much easier for her to manage things herself, giving her some time back, furthermore, even though Alex has her Laissez-faire parenting style, it wouldn't matter so much as the kids would have a balance with me for the other half.
+Alex parents the kids just like her own mother parented her. The mother (Maree) was very hands-off or Laissez-faire style of parenting. **Laissez-faire** is a French term meaning "***to let people do as they please***." Applied to parenting, the term refers to a permissive style in which parents avoid providing guidance and discipline, make no demands for maturity, and impose few controls on their child's behaviour.
+
+We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Mum's home when she was only 14 years old.  Now look how **Julia** turned out, she's DEAD! Yes, it's the worst extreme, but if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced e.g. 50/50 - would greatly benefit Alex, give her more time and make it much easier for her to manage things herself, giving her some time back, furthermore, even though Alex has her Laissez-faire parenting style, it wouldn't matter so much as the kids would have a balance with me for the other half.
 
 All the literature on the topic of shared parenting:
 - [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/)
