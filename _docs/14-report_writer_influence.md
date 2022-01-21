@@ -13,6 +13,22 @@ Then we had two neurotypical people in the sessions (Alex & Bec), **Ruth Selig**
 
 Report writers need to remain neutral and leave all emotions out completely with these things - not the case here. There's a ton of things incorrect and this site is here to bring it all out in the open by using photos, audio and videos - media in these formats doesn't lie.
 
-### Bribe
+## Bribe
 
 The other thing that sort of makes sense to be but would be very had to prove. Alex has the support of her friend Bec and Bec's Mum & Dad. Bec comes from a very wealthy family and I wouldn't be surprised that they offered a cash payment (untraceable) to Ruth **Ruth Selig** to skew this report in the direction where they wanted it to go. It makes sense why **Ruth Selig** changed tact after my session with her.
+
+## Turning a blind eye towards Alex's sister committing suicide
+
+We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Mum's home when she was only 14 years old. Now look how **Julia** turned out, she's DEAD! 
+
+This is pretty serious!
+
+![](../blobs/apexparenting/report_Laissez-faire.png)
+
+- The expert even confirms Alex's parenting style in the report being **Laissez-faire**, but curiously ignores the topic altogether, additionally choses to completely ignore the connection between Alex's parenting style, Alex's mother (Maree's) parenting style and Julia committing suicide. Rather, the report writer was quick to make a connection between my parents and my parenting style:
+
+![](../blobs/apexparenting/report_father_mode_of_parenting.png)
+
+- Numerous places throughout the report, the report writer has real issues with the way that I parent, and a connection to my own parents parenting style, the report is littered with this, but no where is there a connection to Alex's parenting style copied from her mother, then Julia committing suicide is there?
+
+There report writer has been influenced from somewhere. This is a direct cover up, a totally one-sided view - whereas the report writer needs to remain neutral. It's clear the report writer didn't seem to like me in the session, but regardless of her own opinions of me in the session, she needs to overlook this, look at the bigger picture here. Either that, the report writer has another hidden agenda to try and cover up the mental illness that runs in Alex's family, also the Laissez-faire parenting style of Alex's mum that led to Julia's death. We keep going with Alex copying the way her mother parented, and the kids with Alex for the majority of the time then my kids are at serious risk.  

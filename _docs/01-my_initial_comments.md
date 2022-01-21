@@ -63,7 +63,7 @@ A comment from the report writer:
 
  ![](../blobs/report_cut_kids_off.png)
 
- This is totally incorrect, it's purely because I have had less time with the kids and not the opportunity to create a real father/kid bond with them. This is not by choice either, most of it was a judges decision with an interim court order, who at the time had 50 cases to get through on the day, he had a headache and was short of temper and said that he was just going to make an order, that was it - I've been stuck with this order - as much as I hated it - for the past 2 years. 
+ This is totally incorrect, it's purely because I have had less time with the kids and not the opportunity to create a real father/kid bond with them. This is not by choice either, my current time with the kids is 4 nights a fortnight and this was a judges decision early in 2020 with an interim court order, who at the time had 50 cases to get through on the day, he had a headache and was short of temper and said that he was just going to make an order, that was it - I've been stuck with this order - as much as I hated it - for the past 2 years. 
 
  Now that I am working from home every day (since the start of the pandemic), plus can work whatever hours I like, I can more than accommodate the kids. 
 

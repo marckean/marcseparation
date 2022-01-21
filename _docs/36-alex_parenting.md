@@ -54,7 +54,19 @@ This same parent (**Jackie** (*mother of one of Charlie's friends*)) also went o
 
 Alex parents the kids just like her own mother parented her. The mother (Maree) was very hands-off or Laissez-faire style of parenting. [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) is a French term meaning "***to let people do as they please***." Applied to parenting, the term refers to a permissive style in which parents avoid providing guidance and discipline, make no demands for maturity, and impose few controls on their child's behaviour.
 
-We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Mum's home when she was only 14 years old.  Now look how **Julia** turned out, she's DEAD! Yes, it's the worst extreme, but if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced e.g. 50/50 - would equally benefit Alex as well as the kids, give Alex more time and make it much easier for her to manage things herself by giving her some time back, furthermore, even though Alex has a Laissez-faire parenting style, it wouldn't matter so much as the kids would have a balance with my parenting style for the other half.
+We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Mum's home when she was only 14 years old.  Now look how **Julia** turned out, she's DEAD! 
+
+This is pretty serious!
+
+![](../blobs/apexparenting/report_Laissez-faire.png)
+
+- The expert even confirms Alex's parenting style in the report being **Laissez-faire**, but curiously ignores the topic altogether, additionally choses to completely ignore the connection between Alex's parenting style, Alex's mother (Maree's) parenting style and Julia committing suicide. Rather, the report writer was quick to make a connection between my parents and my parenting style:
+
+![](../blobs/apexparenting/report_father_mode_of_parenting.png)
+
+- Numerous places throughout the report, the report writer has real issues with the way that I parent, and a connection to my own parents parenting style, the report is littered with this, but no where is there a connection to Alex's parenting style copied from her mother, then Julia committing suicide is there? This is a direct cover up, influence and totally one-sided - whereas the report writer needs to remain neutral. It's clear the report writer didn't seem to like me in the session, but regardless of her own opinions of me in the session, she needs to overlook this, look at the bigger picture here.
+
+Yes, no matter which way you look at it, **Julia** now dead as a direct result of her up-bringing and mental issues, if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced e.g. 50/50 - would equally benefit Alex as well as the kids, give Alex more time and make it much easier for her to manage things herself by giving her some time back, furthermore, even though Alex has a Laissez-faire parenting style, it wouldn't matter so much as the kids would have a balance with my parenting style for the other half.
 
 All the literature on the topic of shared parenting:
 - [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/)
@@ -85,7 +97,7 @@ Seems to me that the way things are going, Alex is adopting her own mothers pare
 
 ![](../blobs/apexparenting/report_alexparenting_julia4.png)
 
-This statement is slightly incorrect. It's actually the **maternal** mother **Maree** that allowed her very own daughter (**Julia Spence** (now dead)) to move out of her home when she was only 14. It's a bit worrying don't you think, if Alex is allowed to adopt the same parenting style of her mother, look how Julia turned out - she's now DEAD!
+The **maternal** mother **Maree** allowed her very own daughter (**Julia Spence** (now dead)) to move out of her home when she was only 14. It's a bit worrying don't you think, if Alex is allowed to adopt the same parenting style of her mother, look how Julia turned out - she's now DEAD!
 
 **It can't get any clearer than this**, Alex is behind the scenes and very much has a [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) / hands-off parenting style. My daughter Chloe interviewed alone said it herself:
 

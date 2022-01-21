@@ -126,6 +126,37 @@ Some of the several fun times the kids have while at my place - they are **total
 
 ## Page 42
 
+### Kids homework importance
+
+![](../blobs/expertsopinions/report_kids_homework.png)
+
+- I dismiss this, no way the report writer can say this with any substance of evidence. As during school days, I only have the kids 4 nights a fortnight and two fo these days are the weekend. I can't be judged on this fairly based on the current time I have with the kids. 
+- Of course I see that kids homework is important - totally unrelated to when I was a kid, like I said before, that was my childhood, I'm now an adult. 
+
+### Relating to my kids
+
+![](../blobs/expertsopinions/report_ability_to_relate_to_kids.png)
+
+- Total nonsense, I disagree. As you can see from this site, these pages in particular [Dad is Fun](/marcseparation/dad_fun/), [Dad is a good Dad at home](/marcseparation/dad_is_a_good_dad_at_home/) and [Dad is a good Dad outside](/marcseparation/dad_is_a_good_dad_outside/) - my kids and I have a perfect bond in which the report writer doesn't understand, nor has enough information to accurately comment on. 
+
+### Kids, objects, bargaining chips
+
+![](../blobs/expertsopinions/report_kids_bargaining_chips.png)
+
+- The report writer has taken what I said in the session totally out of context. I didn't mention any connection between the kids of 50/50 care to that of financial settlement. 
+- I said that the mother, Alex was [using the children for financial gain](/marcseparation/child_support/), which is another subject the report writer totally ignored and didn't look into, as this report is totally skewed in Alex's favour.
+- As for the kids feeling unimportant and sidelined, the pages on this site negate this, e.g. [Dad is Fun](/marcseparation/dad_fun/), [Dad is a good Dad at home](/marcseparation/dad_is_a_good_dad_at_home/) and [Dad is a good Dad outside](/marcseparation/dad_is_a_good_dad_outside/)
+
+## Page 44
+
+### Kids more time with their mother
+
+![](../blobs/expertsopinions/report_kids_more_time_with_mother.png)
+
+- This is totally incorrect, it's purely because I have had less time with the kids and not the opportunity to create a real father/kid bond with them. This is not by choice either, my current time with the kids is 4 nights a fortnight and this was a judges decision early in 2020 with an interim court order, who at the time had 50 cases to get through on the day, he had a headache and was short of temper and said that he was just going to make an order, that was it - I've been stuck with this order - as much as I hated it - for the past 2 years. 
+
+ Now that I am working from home every day (since the start of the pandemic), plus can work whatever hours I like, I can more than accommodate the kids. 
+
 ## Page 44/45
 
 ![](../blobs/expertsopinions/report_week_about_friends_cousins.png)
