@@ -92,7 +92,7 @@ Let's have a look at my son Charlie for example. Let's compare **Semester 2 2020
 
 ![](../blobs/apexparenting/kids_charlie_2021_semester2.png)
 
-The results are not great, there's hardly any improvement from the the same time in the previous year and in some area's he's going backwards.
+The results are not great, there's hardly any improvement from the the same time in the previous year and in most area's he's going backwards.
 
 He's gone backwards in:
 
