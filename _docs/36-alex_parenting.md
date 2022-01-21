@@ -56,6 +56,8 @@ Alex parents the kids just like her own mother parented her. The mother (Maree) 
 
 > Note, **Laissez-faire** parenting is also referred to [Permissive parenting](https://www.verywellmind.com/what-is-permissive-parenting-2794957).
 
+![](../blobs/apexparenting/Characteristics%20of%20Permissive%20Parenting.png)
+
 We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Mum's home when she was only 14 years old.  Now look how **Julia** turned out, she's DEAD! 
 
 This is pretty serious!
