@@ -80,6 +80,22 @@ All the literature on the topic of shared parenting:
 - [Scientific research for shared parenting](/marcseparation/my_initial_comments/#scientific-research-for-shared-parenting)
 - [Nielsen’s Research: Divorce & Shared Parenting](/marcseparation/appendix_nielsens_research/)
 
+## Kids performance at school
+
+Let's have a look at my son Charlie for example. Let's compare Semester 2 from 2020, then Semester 2 from 2021. 
+
+### Charlie's results from 2020 semester 2
+
+![](../blobs/apexparenting/kids_charlie_2020_semester2.png)
+
+### Charlie's results from 2021 semester 2
+
+![](../blobs/apexparenting/kids_charlie_2021_semester2.png)
+
+As per this [this external site](https://www.verywellmind.com/what-is-permissive-parenting-2794957), some of the effects of **Permissive Parenting** is **Display low achievement in many areas**: Because their parents have little to no expectations of them, these kids have nothing to strive toward. Studies have linked permissive parenting to lower academic achievement.
+
+It shows in Charlie school report - 
+
 ## Dad and doesn't take kids to the park (False opinion from the report)
 
 What Charlie is meaning by this statement below, he means like what happens at his mothers place. Currently he's with his mother 71.4% of the time, so things that happen (rightly or wrongly) with his mother would seem routine to him:
