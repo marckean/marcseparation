@@ -10,22 +10,6 @@ toc: true
 
 ## Prologue
 
-### The rights of the child - United Nations
-
-As per [Convention on the Rights of the Child](https://www.unicef.org.au/our-work/information-for-children/un-convention-on-the-rights-of-the-child):
-
-Children should not be separated from their parents unless it is for their own good. For example, if a parent is mistreating or neglecting a child. Children whose parents have separated have the right to stay in contact with both parents, unless this might harm the child.
-
-More details in the reference link immediately above.
-
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="./blobs/un_PNG20.png"></p>
-
-#### An international agreement for child rights
-
-Thirty years ago, world leaders made a historic commitment to the world’s children by adopting the **United Nations** Convention on the **Rights of the Child** – an international agreement on childhood.
-
-It’s become the most widely ratified human rights treaty in history and has helped transform children’s lives around the world.
-
 ### The Family Report - why we're here
 
 The idea of this site is to look at each aspects of the [family report](/marcseparation/the_report/) (aka. Chapter 15 expert report) and break it down, one by one. The other idea of having this site was the fact that it's on the internet, everyone has internet access, it's all in the one place, point and click, no fumbling around for papers, it's all in the one place, fast, fluid and easy to access on any device.
@@ -51,6 +35,22 @@ Report writers need to remain neutral and leave all emotions out completely with
 There are many errors in this report. Like I was saying just above, someone's interpretation using a pen/paper to note things down is prone for for errors, humans are not perfect, they make mistakes. 
 
 You need to seriously question the credibility of this report writer. I have documented the mistakes [here](/marcseparation/report_mistakes/).
+
+### The rights of the child - United Nations
+
+As per [Convention on the Rights of the Child](https://www.unicef.org.au/our-work/information-for-children/un-convention-on-the-rights-of-the-child):
+
+Children should not be separated from their parents unless it is for their own good. For example, if a parent is mistreating or neglecting a child. Children whose parents have separated have the right to stay in contact with both parents, unless this might harm the child.
+
+More details in the reference link immediately above.
+
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="./blobs/un_PNG20.png"></p>
+
+#### An international agreement for child rights
+
+Thirty years ago, world leaders made a historic commitment to the world’s children by adopting the **United Nations** Convention on the **Rights of the Child** – an international agreement on childhood.
+
+It’s become the most widely ratified human rights treaty in history and has helped transform children’s lives around the world.
 
 ### How to use this site
 
