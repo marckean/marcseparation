@@ -2,7 +2,7 @@
 title: "What I mentioned that was missed"
 permalink: /report_missed_mentions/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 Whilst in the session with **Dr Ruth Selig**, there were several things that I mentioned to the report writer that were missed in the report. Why were these items missed? Well it's most likely [due to human error](/marcseparation/#accuracy-of-the-report).

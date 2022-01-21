@@ -2,7 +2,7 @@
 title: "Kids Eating"
 permalink: /kids_eating/
 excerpt: "How the theme is organized and what all of the files are for."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 

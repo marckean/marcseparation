@@ -2,7 +2,7 @@
 title: "Report mistakes"
 permalink: /report_mistakes/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 There are many errors in this report. Like I was saying [here](/marcseparation/#the-family-report---why-were-here), someone's interpretation using a pen/paper to note things down is prone for errors, humans are not perfect, they make mistakes. 

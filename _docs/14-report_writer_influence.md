@@ -2,7 +2,7 @@
 title: "Report Writer Influence"
 permalink: /report_writer_influence/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 As per [what I mentioned on the home page](/marcseparation/#the-family-report---why-were-here), there's no denying, the bulk of this report is against me and makes me look like a real monster of a Dad - I'm not a monster of a Dad and this site proves that I am not a monster. There's certain aspects that been ignored (purposely or mistakenly), things taken out of context, spoken words not perceived clearly from what was mentioned in the room with a clear skewed view based on influence from particular neurotypical people interviewed. 

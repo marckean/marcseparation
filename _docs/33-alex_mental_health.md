@@ -2,7 +2,7 @@
 title: "Mental health"
 permalink: /alex_mental_health/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 ## Background

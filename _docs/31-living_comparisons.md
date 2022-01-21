@@ -2,7 +2,7 @@
 title: "Living Comparisons"
 permalink: /living_comparisons/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 ## Statements from the report

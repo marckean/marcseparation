@@ -2,7 +2,7 @@
 title: "Dad is a good Dad, at home"
 permalink: /dad_is_a_good_dad_at_home/
 excerpt: "How to quickly install and setup Minimal Mistakes for use with GitHub Pages."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 

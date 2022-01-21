@@ -2,7 +2,7 @@
 title: "Dad, Kids & Sport"
 permalink: /dad_kids_sport/
 excerpt: "How to quickly install and setup Minimal Mistakes for use with GitHub Pages."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 

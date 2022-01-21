@@ -2,7 +2,7 @@
 title: "My Initial Comments"
 permalink: /my_initial_comments/
 excerpt: "How to quickly install and setup Minimal Mistakes for use with GitHub Pages."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 

@@ -2,7 +2,7 @@
 title: "Experts opinions"
 permalink: /experts_opinions/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
-last_modified_at: 2022-01-17
+last_modified_at: 2022-01-23
 toc: true
 ---
 In the report from page 39 onwards is where the so called expert has listed all her recommendations. This is not an exhaustive list of the report writer's recommendations, as the others I have captured throughout this site on other pages. 
