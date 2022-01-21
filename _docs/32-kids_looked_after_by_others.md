@@ -22,5 +22,10 @@ Now with all this information about Alex's sister Victoria, you really think it'
 
 ![](../blobs/beckids/report_bec_kids.png)
 
-## Bec and the kids
+Rebecca (Bec) also is not exactly the best role model for any kids as I have mentioned [here](/marcseparation/alex_friend_bec/).
 
+- Being topless in front me my son Charlie, not once, but several times
+- Bec is a long term smoker, smokes around my kids and leaves cigarettes around them
+- Bec doesn't believe in parental controls for online streaming platforms such as Netflix, Disney+, Prime, Binge etc
+
+Having Bec look after my kids, not the best choice. 
