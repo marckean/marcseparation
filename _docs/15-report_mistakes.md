@@ -76,7 +76,7 @@ To set set the record straight, Alex and I were never married. We were engaged, 
 
 - This is from the session with my Mum (the paternal grandmother). My Mum wouldn't have mentioned that we were married at all. 
 
-This is pure laziness from the report writer. She makes these mistakes, can't even go to the trouble of using correct terminology, how can you then accurately believe the rest of the report. 
+This is pure laziness from the report writer. She makes these mistakes, she can't even go to the trouble of using correct terminology, how can you then accurately believe the rest of the report. 
 
 ## Other mistakes
 

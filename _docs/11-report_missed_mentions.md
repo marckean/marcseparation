@@ -23,6 +23,12 @@ More details [here](/marcseparation/julia_spence_mental_health/#what-the-report-
 
 Everything I listed [here](/marcseparation/alex_mental_health/), I asked **Ruth Selig** to find out what was happening in Alex's head, her mental state. There's clear evidence of mental issues in the family, but **Ruth Selig** skipped this totally and swept this under the rug. **Ruth Selig** did say to me that "*she has powers from the court*" to find out information, so this is when I asked **Ruth Selig** to find out about Alex's mental state of mind. Something is seriously happening with Alex. 
 
+Here's my comment from my session with the report writer:
+
+![](../blobs/missedmentions/report_family_mental_state.png)
+
+However like most other things, Ruth has completely ignored this altogether, but rather put sole focus on my Asperger's and me being the worst Dad. 
+
 ## Kids table manners
 
 I am very instrumental in teaching the kids good moral and values. I used the example of my father who worked in high profile jobs all his life as CEO of large companies where he had to represent the company with other business people, he understood correct manners. I also mentioned that having good manners is a good reflection on the kids themselves, also the parents and that other people take notice of this. People notice these things, good manners of kids and create good warm opinions of the kids as a result. I said that before separation one of the things I did which I was very proud of, from an early age I taught the kids proper table manners. To this day, the kids still exhibit good table manners and even teach some of their own peers the correct way to use a knife & fork for example.

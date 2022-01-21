@@ -218,4 +218,6 @@ Should I get more time with the kids, week on / week off as an example, then eve
 
 ![](../blobs/expertsopinions/report_kids_learn_from_parents.png)
 
-- This report writer doesn't know that she's talking about. For starters, Ruth is mixing how I was in 
+- This report writer doesn't know that she's talking about. For starters, [Alex and I were never married](/marcseparation/report_mistakes/#marriage).
+- Ruth is getting this all twisted around how she thinks my relationship with Alex is similar to how I treat my kids. She can't any further from the fact.
+- My issues with Alex were simply that, issues with Alex [as listed here](/marcseparation/alex_mental_health/). Alex has mental issues which Ruth has again failed to drill into even when I asked her to. 
