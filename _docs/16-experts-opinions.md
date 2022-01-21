@@ -9,7 +9,7 @@ In the report from page 39 onwards is where the so called expert has listed all 
 
 ## Page 39
 
-### Saturday morning sport
+### Saturday morning sport, currently
 
 ![](../blobs/expertsopinions/report_sat_morning_sport.png)
 
@@ -182,5 +182,12 @@ However during non-school holiday time, the time I have with the kids is greatly
 
 Should I get more time with the kids, week on / week off as an example, then even during non-school holidays I'd adopt the same as school holidays practice and there would totally be more friend time with the kids.
 
+## Page 45
 
+### Saturday morning sport, future
+
+![](../blobs/expertsopinions/report_saturday_sport.png)
+
+- For starters, this is not fair.... Why is this totally one sided, saying it's the mother makes the decisions about the kids sport and enrols the kids sport herself, then I'm just expected to support her and have no say? The kids are both of ours, we are both parents and we both make the decisions about our kids sport, not just Alex. 
+- Secondly, since separation at the end of 2019, [I see sport differently now](/marcseparation/dad_kids_sport/)
 
