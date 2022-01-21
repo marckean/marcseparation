@@ -9,11 +9,16 @@ toc: true
 
 ![](../blobs/reportkidslookedafter/report_kidslookedafter1.png)
 
-- 
+- Alex's sister Victoria or Bec looking after the kids on Saturdays
 
 ![](../blobs/reportkidslookedafter/report_kidslookedafter2.png)
 
-- This is about Julia, she lived between Sydney & Adelaide
+- Not by choice, but Alex has no choice but to be heavily reliant on her sister Victoria to help look after the kids, as she has no parents (they are dead). But we all know how mentally insane Victoria is don't we? 
+- Vic [calls me a dickhead in front of the kids](/marcseparation/vic_calling_me_a_dickhead/), then even without Alex knowing, she calls the Police and tells them that I am suicidal. The next day, even Alex had to call the Police and tell them to cancel the event. 
+- Also this absurd accusation Victoria is making about [me spying on her breast feeding](/marcseparation/breast_feeding_spy_allegation/), where I have included evidence of where Alex herself at the time defended me. Basically Victoria and her husband Andrew are completely insane with the allegations. 
+- Plus all the other issues with Victoria as listed [here](/marcseparation/alex_sister_victoria/).
+
+Now with all this information about Alex's sister Victoria, you really think it's a good idea that she looks after my kids? Of course not. 
 
 ![](../blobs/beckids/report_bec_kids.png)
 
