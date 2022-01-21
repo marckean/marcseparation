@@ -219,5 +219,7 @@ Should I get more time with the kids, week on / week off as an example, then eve
 ![](../blobs/expertsopinions/report_kids_learn_from_parents.png)
 
 - This report writer doesn't know that she's talking about. For starters, [Alex and I were never married](/marcseparation/report_mistakes/#marriage).
-- Ruth is getting this all twisted around how she thinks my relationship with Alex is similar to how I treat my kids. She can't any further from the fact.
-- My issues with Alex were simply that, issues with Alex [as listed here](/marcseparation/alex_mental_health/). Alex has mental issues which Ruth has again failed to drill into even when I asked her to. 
+- Ruth is getting this all twisted around how she thinks the experience of my relationship with Alex is connected to how I treat my kids. She can't any further from the fact. 
+- My issues with Alex were simply that, the numerous issues with Alex [as listed here](/marcseparation/alex_mental_health/). Alex clearly has mental issues similar to that of her family which like some other issues, Ruth has again failed to drill into [even when I asked her to](/marcseparation/report_missed_mentions/#alexs-mental-state).
+- How I am around my kids? I am totally different as my kids don't exhibit any of the issues that Alex exhibits, and even more so to the fact that [my son even reminds his own Mummy to lock the house himself](/marcseparation/alex_mental_health/#the-house-is-constantly-left-unlocked), as Alex continues to forget to lock the house, even today!
+- The kids eating part of this [is covered here](/marcseparation/kids_eating/), and it's all about portion control and understanding how much my kids can actually eat. 
