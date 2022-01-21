@@ -21,6 +21,10 @@ As the audio of the sessions wasn't recorded either digitally or analog, there's
 
 - At the time of the report, I am only 45 years of old and I don't live in Chatswood, I live in Asquith. 
 
+![report_accuracy_1](../blobs/accuracy/report_accuracy_2.png)
+
+- I don't live in Chatswood, I am renting in Asquith.
+
 ### Alex's sister Julia
 
 Alex only had one mentally screwed up younger sister that committed suicide. This was **Julia**, not **Julie**.
@@ -77,6 +81,28 @@ To set set the record straight, Alex and I were never married. We were engaged, 
 - This is from the session with my Mum (the paternal grandmother). My Mum wouldn't have mentioned that we were married at all. 
 
 This is pure laziness from the report writer. She makes these mistakes, she can't even go to the trouble of using correct terminology, how can you then accurately believe the rest of the report. 
+
+### Alex's work
+
+![](../blobs/mistakes/report_Alex_work.png)
+
+- Alex doesn't work in Cremorne, she never has, she works at the **Century 21** office in Asquith.
+
+### Doesn't make sense
+
+![](../blobs/mistakes/report_doesnt_make_sense.png)
+
+- Simply doesn't make sense, grammar is wrong.
+
+### Mum coming to Sydney
+
+![](../blobs/mistakes/report_virgin_flights_mum.png)
+
+- Mum didn't come to Sydney in November for a week as per what the report writer said, she came in December for 4 nights.
+
+    Here's Mum's Virgin itinerary to prove this fact: 
+
+    ![](../blobs/mistakes/virgin_flights_mum.png)
 
 ## Other mistakes
 
