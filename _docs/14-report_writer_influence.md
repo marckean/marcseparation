@@ -25,7 +25,7 @@ This is pretty serious!
 
 ![](../blobs/apexparenting/report_Laissez-faire.png)
 
-- The expert even confirms Alex's parenting style in the report being **Laissez-faire**, but curiously ignores the topic altogether, additionally choses to completely ignore the connection between Alex's parenting style, Alex's mother (Maree's) parenting style and Julia committing suicide. Rather, the report writer was quick to make a connection between my parents and my parenting style:
+- The expert even confirms Alex's parenting style in the report being [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style), but curiously ignores the topic altogether, additionally choses to completely ignore the connection between Alex's parenting style, Alex's mother (Maree's) parenting style and Julia committing suicide. Rather, the report writer was quick to make a connection between my parents and my parenting style:
 
 ![](../blobs/apexparenting/report_father_mode_of_parenting.png)
 
