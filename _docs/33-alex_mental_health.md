@@ -37,7 +37,7 @@ Doing extensive research online, knowing Alex from **before** and **after** we s
 
 ## The house is constantly left unlocked
 
-Before separation in Nov 2019, Alex used to always leave the matrimonial home unlocked. I would come home from work, no one was home and constantly I would find a door unlocked. Can just walk straight in. Even now it's still happening, a conversation with my son Charlie & Chloe confirm this is still the case. Alex is so mentally affected, that even my own son **Charlie** has to step up and remind Alex to lock the house. 
+Before separation in Nov 2019, Alex used to always leave the matrimonial home unlocked. I would come home from work, no one was home and constantly I would find a door unlocked. Can just walk straight in. Even now it's still happening, a conversation with my son Charlie & Chloe confirm this is still the case. Alex is so mentally affected, that even my own son **Charlie** has to step up and remind Alex to lock the house.
 
 <audio src="../audio/Alex_not_locking_the_house.mp3" type="audio/mpeg" controls>
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
