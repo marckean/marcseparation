@@ -107,7 +107,7 @@ As per this [this external site](https://www.verywellmind.com/what-is-permissive
 
 These is hard core evidence that Alex's permissive parenting seems to be having a negative effect on my son. 
 
-> Note: I haven't showed my daughter Chloe here as Chloe is parented different to Charlie, where Charlie is given much more freedom, however it worries me that Chloe will follow in Charlie's footsteps. 
+> Note: I haven't showed my daughter Chloe here as Chloe is parented different to Charlie, where Charlie is given much more freedom, however it worries me that Chloe will follow in Charlie's footsteps in years to come if nothing is done in terms of parenting e.g. more balance with their father. 
 
 ## Dad and doesn't take kids to the park (False opinion from the report)
 
