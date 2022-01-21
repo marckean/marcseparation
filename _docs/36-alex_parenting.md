@@ -82,7 +82,7 @@ All the literature on the topic of shared parenting:
 
 ## Kids performance at school
 
-Let's have a look at my son Charlie for example. Let's compare Semester 2 from 2020, then Semester 2 from 2021. 
+Let's have a look at my son Charlie for example. Let's compare **Semester 2 2020** from **Semester 2 2021**. 
 
 ### Charlie's results from 2020 semester 2
 
@@ -92,9 +92,22 @@ Let's have a look at my son Charlie for example. Let's compare Semester 2 from 2
 
 ![](../blobs/apexparenting/kids_charlie_2021_semester2.png)
 
+The results are not great, there's hardly any improvement from the the same time in the previous year and in some area's he's going backwards.
+
+He's gone backwards in:
+
+- Shows enthusiasm for learning
+- Is persistent
+- Demonstrates self control
+- Interacts well with peers
+- Works cooperatively
+- Completes tasks in a given timeframe
+
 As per this [this external site](https://www.verywellmind.com/what-is-permissive-parenting-2794957), some of the effects of **Permissive Parenting** is **Display low achievement in many areas**: Because their parents have little to no expectations of them, these kids have nothing to strive toward. Studies have linked permissive parenting to lower academic achievement.
 
-It shows in Charlie school report - 
+These is hard core evidence that Alex's permissive parenting seems to be having a negative effect on my son. 
+
+> Note: I haven't showed my daughter Chloe here as Chloe is parented different to Charlie, where Charlie is given much more freedom, however it worries me that Chloe will follow in Charlie's footsteps. 
 
 ## Dad and doesn't take kids to the park (False opinion from the report)
 
