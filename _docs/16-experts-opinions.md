@@ -128,6 +128,12 @@ I can see how the report writer would have jumped to this conclusion about my di
 
 The report writer has taken this way of of context. Yes I **encourage** the kids to come with me, but this is not for the runs that I do, not at all, this may involve some walks around an oval, or even coming with me to my personal training sessions where I do weights with my PT in the same place (no running, just weights), however I always bring my 5G internet WiFi with me, the kids are happy, they are there with me, we can chat, they can play in the playground right nearby if they like or can use their devices/phones either playing online games with their friends or watching Netflix. About 5% of the time, my son Charlie will ask me if he can come on a run with me, I say OK, however he normally pulls out half way through and I never push him to go any further than he feels comfortable with. 
 
+This comment from me:
+
+![](../blobs/expertsopinions/report_kids_run_marc.png)
+
+I even mention it that the kids come for a run with me sometimes, this is Charlie, not Chloe. But as I mentioned just above, Charlie only comes when he decides himself. Plus with the kids and scooters, the kids did this once, they both rode their scooter's while I ran, but then gave up half way through my run - we haven't done this again since as their scooters are at their Mum's place anyway, they are not at my place as I don't have the kids for as long as their Mum. If I had the kids longer, then I'd get scooters for the kids myself.  
+
 ### Kids interpersonal relationships
 
 ![](../blobs/expertsopinions/report_interpersonal_relationships.png)
