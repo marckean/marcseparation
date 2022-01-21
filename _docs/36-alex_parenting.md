@@ -99,7 +99,7 @@ Instead, I do take the kids to the park quite often, however I go with them myse
 
 Alex's way of parenting is from behind the scenes, she takes a step back, just like her own mother **Maree** did (and Maree was also a single mum as well). [Being a single parent is extremely difficult](/marcseparation/my_initial_comments/#single-parent) especially when you have to manage a massive two story house yourself, still working the same part time job as before separation getting paid peanuts of only $500/week and needing to go into the office with minimal working from home allowances.
 
-Seems to me that the way things are going, Alex is adopting her own mothers parenting style, and is allowing the kids to do **whatever** they choose to. Below, as per the report, Alex's sister Julia was allowed to move out of the home when she was only 14. She had no father in her life as he was distant and interstate most of the time then dead for the majority of her growing up, but also the mother was totally behind the scenes as Julia was living in a separate residence.
+Seems to me that the way things are going, Alex is adopting her own mothers permissive parenting style, and is allowing the kids to do **whatever** they choose to. Below, as per the report, Alex's sister Julia was allowed to move out of the home when she was only 14. She had no father in her life as he was distant and interstate most of the time then dead for the majority of her growing up, but also the mother was totally behind the scenes as Julia was living in a separate residence.
 
 ![](../blobs/apexparenting/report_alexparenting_julia4.png)
 
