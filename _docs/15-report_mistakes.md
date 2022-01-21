@@ -7,7 +7,7 @@ toc: true
 ---
 There are many errors in this report. Like I was saying [here](/marcseparation/#the-family-report---why-were-here), someone's interpretation using a pen/paper to note things down is prone for errors, humans are not perfect, they make mistakes. 
 
-You need to seriously question the credibility of this report writer. 
+You need to seriously question the credibility of this report writer. For a report that costs $18K, you wouldn't expect any mistakes, especially like these. 
 
 As the audio of the sessions wasn't recorded either digitally or analog, there's no way to prove the accuracy of anything in the report and based on the [contradictions](/marcseparation/report_contradictions/) and the mistakes which I have listed here, this entire report is questionable.
 
@@ -59,6 +59,24 @@ The report writer is clearly trying to sugar coat this mental health aspect.
 
 - The report writer is saying here that I currently have the kids for **two days a fortnight**.
 - Again here, the report writer has no clue at all of the time I currently have with the kids. As per the interim orders, I have the kids for **four nights a fortnight**, not **two days a fortnight**.
+
+### Marriage
+
+To set set the record straight, Alex and I were never married. We were engaged, but never married, so we were defacto only. I did mention this to the report writer in the session, also my Mum is very clear on this as well, however the report writer has incorrectly said it multiple times, incorrectly referring to Alex and I as **married**. 
+
+![](../blobs/mistakes/report_marriage1.png)
+
+- This is the section from the report writer herself
+
+![](../blobs/mistakes/report_marriage2.png)
+
+- This is from the session with Alex, Alex even knew that we were't married, however the report writer still uses this incorrect statement. 
+
+![](../blobs/mistakes/report_marriage3.png)
+
+- This is from the session with my Mum (the paternal grandmother). My Mum wouldn't have mentioned that we were married at all. 
+
+This is pure laziness from the report writer. She makes these mistakes, can't even go to the trouble of using correct terminology, how can you then accurately believe the rest of the report. 
 
 ## Other mistakes
 

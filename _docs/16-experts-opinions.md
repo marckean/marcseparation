@@ -195,3 +195,27 @@ Should I get more time with the kids, week on / week off as an example, then eve
 - For starters, this is not fair.... Why is this totally one sided, saying it's the mother makes the decisions about the kids sport and enrols the kids sport herself, then I'm just expected to support her and have no say? The kids are both of ours, we are both parents and we both make the decisions about our kids sport, not just Alex. 
 - Secondly, since separation at the end of 2019, [I see sport differently now](/marcseparation/dad_kids_sport/)
 
+### Kids restricted with me, I am not flexible
+
+![](../blobs/expertsopinions/report_kids_restricted.png)
+
+- This is NOT TRUE, saying that the kids are restricted from certain activities is false. Again, most of the time I only have the kids 4 nights a fortnight and two of these days are the weekend. It's not a crime, but I love my kids dearly and I tend to maximise my time with my kids due to the limited time that I have with them. So [I can't be judged on the current time that I have with the kids](/marcseparation/my_initial_comments/#unfairly-judged-based-on-current-time-with-the-kids) as it's very much skewed towards the mother. 
+- In saying this, the kids have their friend Nicolas across the other side of the apartment block in which they both hang out with regularly. Then on school holidays when I do get more time with the kids, as per above, I'll reach out to some of their friends parents and arrange play dates etc.
+- On weekends we also do outside activities together. Bearing in mind that some of the time it's computer time as the kids and all their friends are socially connected online , pretty much all their friends are also online during the weekend and evenings, this is what all the kids are doing these days, especially more so since COVID-19 this has increased dramatically, and it's only ay my place that the kids have actual computers. Then, to break up the screen time I'll claw the kids away from the computers so that we can get out, experience fresh air, park, recreation places, fun parks etc, as an example see [here](/marcseparation/kids_park/) and [here](/marcseparation/kids_park_videos/). However most times the kids then get bored if too long at a park, as their friends are online, they'll tend to want to go back home again, jump online with their friends, as this where all the action is happening these days.
+
+## Page 45/46
+
+### Kids adjusting to 50/50
+
+![](../blobs/expertsopinions/report_5050_refuse_to_attend.png)
+
+- THe report writer is wrong, as per above, [I can't be judged on the current time that I have with the kids](/marcseparation/my_initial_comments/#unfairly-judged-based-on-current-time-with-the-kids). This is all assumptions with no hard core evidence to back up this report writer's assumption. 
+- If the kids had more time with me, I have already made contact with parents of the kids friends, I have support of mothers where I live in the apartment block, the kids will be very well looked after I have never been as confident. 
+
+## Page 46
+
+### My attitude to marriage will alienate my kids
+
+![](../blobs/expertsopinions/report_kids_learn_from_parents.png)
+
+- This report writer doesn't know that she's talking about. For starters, Ruth is mixing how I was in 
