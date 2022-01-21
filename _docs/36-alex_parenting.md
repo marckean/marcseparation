@@ -103,11 +103,11 @@ The **maternal** mother **Maree** allowed her very own daughter (**Julia Spence*
 
 ![](../blobs/apexparenting/report_alexparenting4.png)
 
-- Alex never wants to spend time with Chloe - that's because Alex doesn't have the bandwidth.
+- Alex doesn't have the bandwidth and Alex exercises the same parenting style of her own mother
 
-This couldn't also be related to what I think, that based on [events I have recorded about Alex's mental health](/marcseparation/alex_mental_health/), Alex may be suffering from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) as though she’s disconnected from both her body and the world around.
+This could also be related, I think that based on [events I have recorded about Alex's mental health](/marcseparation/alex_mental_health/), as well the history of mental health in the family with Bipolar disorder, Alex may be suffering from [depersonalisation disorder](https://www.netdoctor.co.uk/ask-the-expert/depression-faqs/a512/i-constantly-feel-like-im-on-autopilot/) as though she’s disconnected from both her body and the world around.
 
-It's confirmed [here](/marcseparation/report_contradictions/#contradiction-2). It may seem great (in theory) that Alex picks up the kids from school, but realistically, she doesn't spend time with the kids after school, as she's working. So the kids need to look after themselves, or in Charlie's case, left to his own devices. 
+It's confirmed [here](/marcseparation/report_contradictions/#alex-says-that-she-goes-to-the-park-each-afternoon-from-3pm). It may seem great (in theory) that Alex picks up the kids from school, but realistically, she doesn't spend time with the kids after school, as she's working. So the kids need to look after themselves, or in Charlie's case, left to his own devices. 
 
 ### After School care
 

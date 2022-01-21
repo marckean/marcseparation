@@ -96,9 +96,15 @@ In 49 **Alex said** "*The children find it hard to stand up for themselves and f
 
 If we weigh it all up, there's a totally different focus on Chloe here between Alex and Bec with conflicting information. Chloe and I have no issues together, when we're together. We get on perfectly fine, we laugh and chat, we naturally connect, she understands me and I understand her. Like me, [Chloe has Asperger's](/marcseparation/chloe/) and I simply **get** Chloe more than neurotypical people such as Alex, or Bec. 
 
-Kids don't struggle around me, see this section on [Dad is fun](/marcseparation/dad_fun/), [Dad is a good Dad at home](/marcseparation/dad_is_a_good_dad_at_home/) and [Dad is a good Dad outside](/marcseparation/dad_is_a_good_dad_outside/), there's heaps of content, the kids are having so much fun and are more than happy when they're with me. 
+Kids don't struggle around me, see this section on [Dad is fun](/marcseparation/dad_fun/), [Dad is a good Dad at home](/marcseparation/dad_is_a_good_dad_at_home/) and [Dad is a good Dad outside](/marcseparation/dad_is_a_good_dad_outside/), the kids are super relaxed around me, the kids are having so much fun and are more than happy when they're with me. 
 
-Another example I posted [here](/marcseparation/dad_is_a_good_dad_outside/#big-boing-birtinya-qld), this is when we went to Queensland to visit the paternal grandparents. I didn't want to go on the trampolines with the kids as I thought I was too old, but it was my daughter **Chloe** that twisted my arm to do this. She wouldn't have twisted my arm so much if the above statements were true - Chloe doesn't not struggle with me and the kids are not intimidated at all. 
+Another example I posted [here](/marcseparation/dad_is_a_good_dad_outside/#big-boing-birtinya-qld), this is when we went to Queensland to visit the paternal grandparents. I didn't want to go on the trampolines with the kids as I thought I was too old, but it was my daughter **Chloe** that twisted my arm to do this. She wouldn't have twisted my arm so much if the above statements were true, Chloe loves it when I play with her - Chloe doesn't not struggle with me and the kids are not intimidated at all.
+
+As a reminder, [this comment from Chloe about her mother Alex](/marcseparation/alex_parenting/):
+
+![](../blobs/apexparenting/report_alexparenting4.png)
+
+At least I play with and spend time with my kids, you can see it in photo & video evidence all over this site. 
 
 ### My time with the kids
 
@@ -112,3 +118,16 @@ Another example I posted [here](/marcseparation/dad_is_a_good_dad_outside/#big-b
 
 This is conflicting information. But to set the record straight, I have been consistent all along and always advocated for week on / week off (50/50) across the whole year, this is both across school days and school holidays.
 
+### Kids WiFi
+
+![](../blobs/missedmentions/report_kids_wifi.png)
+
+This is bullshit, I never said this, the report writer has gotten this twisted around. I stop the kids WiFi (sometimes) when either breakfast, lunch or dinner is ready. I hit the stop button, then within 10 seconds, kids happily run out and say "*Yes Dad*"? 
+
+We then eat at the dining room table, then I unblock the WiFi once we've finished eating. 
+
+As you can see here, my son Charlie said it himself, I turn off the WiFi (Internet) at mealtime, for when the kids need to come out to eat and sit at the table. 
+
+![](../blobs/mistakes/report_wifi_kids.png)
+
+It's not if the kids annoy each other. 
