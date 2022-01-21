@@ -54,6 +54,8 @@ This same parent (**Jackie** (*mother of one of Charlie's friends*)) also went o
 
 Alex parents the kids just like her own mother parented her. The mother (Maree) was very hands-off or Laissez-faire style of parenting. [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) is a French term meaning "***to let people do as they please***." Applied to parenting, the term refers to a permissive style in which parents avoid providing guidance and discipline, make no demands for maturity, and impose few controls on their child's behaviour.
 
+> Note, **Laissez-faire** parenting is also referred to [Permissive parenting](https://www.verywellmind.com/what-is-permissive-parenting-2794957).
+
 We just need to look at the evidence in front of us - Alex's sister [Julia](/marcseparation/julia_spence_mental_health/) moved out of the Mum's home when she was only 14 years old.  Now look how **Julia** turned out, she's DEAD! 
 
 This is pretty serious!
@@ -66,7 +68,9 @@ This is pretty serious!
 
 - Numerous places throughout the report, the report writer has real issues with the way that I parent, and a connection to my own parents parenting style, the report is littered with this, but no where is there a connection to Alex's parenting style copied from her mother, then Julia committing suicide is there? This is a direct cover up, influence and totally one-sided - whereas the report writer needs to remain neutral. It's clear the report writer didn't seem to like me in the session, but regardless of her own opinions of me in the session, she needs to overlook this, look at the bigger picture here.
 
-Yes, no matter which way you look at it, **Julia** now dead as a direct result of her up-bringing and mental issues, if we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced e.g. 50/50 - would equally benefit Alex as well as the kids, give Alex more time and make it much easier for her to manage things herself by giving her some time back, furthermore, even though Alex has a Laissez-faire parenting style, it wouldn't matter so much as the kids would have a balance with my parenting style for the other half.
+> Also note, as [documented here](https://www.gottman.com/blog/the-four-parenting-styles/), the effects of the Laissez-faire parenting style on children: They don’t learn to regulate their emotions. They have trouble concentrating, forming friendships, and getting along with other children.
+
+Yes, no matter which way you look at it, **Julia** now dead as a direct result of her Laissez-faire up-bringing and mental issues. If we look at all the literature on the topic of **shared parenting** which I have collated on this site, then having the kids more time with me - more balanced e.g. 50/50 - would equally benefit Alex as well as the kids, give Alex more time and make it much easier for her to manage things herself by giving her some time back, furthermore, even though Alex has a Laissez-faire parenting style, it wouldn't matter so much as the kids would have a balance with my parenting style for the other half.
 
 All the literature on the topic of shared parenting:
 - [Top 10 list of the benefits of 50/50 custody](/marcseparation/5050_custody/)

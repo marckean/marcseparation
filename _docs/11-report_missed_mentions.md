@@ -5,15 +5,23 @@ excerpt: "Instructions and suggestions for upgrading the theme."
 last_modified_at: 2022-01-17
 toc: true
 ---
-Whilst in the session with Dr Ruth Selig, there were several things that I mentioned that were missed in the report.
+Whilst in the session with **Dr Ruth Selig**, there were several things that I mentioned to the report writer that were missed in the report. Why were these items missed? Well it's most likely [due to human error](/marcseparation/#accuracy-of-the-report).
 
 ## Teaching the kids life skills
 
-- I mentioned that one of the things I was most proud of was that I taught the kids table manners whilst I was still living in the house. My father who was a CEO at large companies throughout his life, **wined and dined** with his other business people and it was imperative that he spoke correctly and acted correctly as he was representing his company. People judge others by the way they speak and act which includes things like table manners. Even today, the kids tell me that now they are proud that even tell other peers (their friends) the correct table manners.
+I mentioned that one of the things I was most proud of was that I taught the kids table manners whilst I was still living in the house. My father who was a CEO at large companies throughout his life, **wined and dined** with his other business people and it was imperative that he spoke correctly and acted correctly as he was representing his company. People judge others by the way they speak and act which includes things like table manners. Even today, the kids tell me that now they are proud that even tell other peers (their friends) the correct table manners.
+
+## Teaching the kids authority
+
+In direct contrast to Alex's [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) parenting style, I mentioned to Ruth about how my kids need to learn and respect authority. There's none of this in when the kids are with Alex, or her carers (sister Victoria & friend Bec) and it's important that they learn this, which is what I can provide. Good reason for the kids to learn to respect authority,I used the analogy of when the kids get their first job e.g. at McDonalds, if they don't understand to respect authority, there'll be zero tolerance to this and they'd most likely loose their job. Then later, it would be super challenging to get a second job with a bad reference from the first job. 
+
+My parenting style is not corporal punishment at all, I teach authority respectfully with the kids, in such a way the kids are not alienated from me at all and I always have their love and respect. 
+
+In relation to this, I also mentioned that I'd love to have the kids more time in order for me to continue to teach the kids values, authority and other life skills to counteract the opposite parenting style of Alex. 
 
 ## Julia dying
 
-- Ruth told me that *I’ll be putting in the report that Julia Spence committed suicide*. But she didn't. 
+Ruth told me that *I’ll be putting in the report that Julia Spence committed suicide*. But she didn't. 
 
 ![](../blobs/missedmentions/report_juliadiedinhersleep.png)
 
