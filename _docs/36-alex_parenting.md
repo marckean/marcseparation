@@ -179,4 +179,8 @@ I knew nothing about these visits for my daughter Chloe. This is another example
 
 I think it's a bit over the top to take an 8 year old to these things. However, it's no wonder as this is exactly how Alex was parented. As mentioned above, we generally parent how we were parented. Alex's mother (when she was alive) worked for **Relationships Australia** as a counsellor. Alex grew up in the environment where counselling was normal and this would be the reason why she'd be sending Chloe without even a second thought. 
 
-However there's more to this with Chloe which Alex doesn't get as Alex is neurotypical. The [CAST assessment I did with my daughter Chloe recently](/marcseparation/chloe/) confirmed my thoughts that Chloe - like me - has Asperger's. I could sense a long time ago.  
+However there's more to this with Chloe which Alex doesn't get as Alex is neurotypical. The [CAST assessment I did with my daughter Chloe recently](/marcseparation/chloe/) confirmed my thoughts that Chloe - like me - has Asperger's. I could sense a long time ago. 
+
+## Alex and my apartment
+
+What is really weird and backed up by my theory about Alex's [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) parenting style, plus my other theory of [Alex using the children for financial gain](/marcseparation/child_support/) - Alex has never ever been to my place, she has never seen my place and where our/her kids sleep when they are with me. Wouldn't any mother (or parent) want to know where their kids are sleeping if it's on an on-going arrangement? This tells me that she just doesn't care for the kids that much, and this adds significant weight to my two theories. 

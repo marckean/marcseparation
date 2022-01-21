@@ -33,6 +33,10 @@ However like most other things, Ruth has completely ignored this altogether, but
 
 I am very instrumental in teaching the kids good moral and values. I used the example of my father who worked in high profile jobs all his life as CEO of large companies where he had to represent the company with other business people, he understood correct manners. I also mentioned that having good manners is a good reflection on the kids themselves, also the parents and that other people take notice of this. People notice these things, good manners of kids and create good warm opinions of the kids as a result. I said that before separation one of the things I did which I was very proud of, from an early age I taught the kids proper table manners. To this day, the kids still exhibit good table manners and even teach some of their own peers the correct way to use a knife & fork for example.
 
+### Charlie Basketball coaching
+
+As I have documented [here](/marcseparation/dad_kids_sport/#charlie-basketball-coaching), I did mention to Ruth that I organised Basketball coaching for my son Charlie, but Ruth failed to mention this int he report, rather, she commented several times that I am against sport, against Saturday morning sport and mad me look like a really anti-sport person, which is not the fact at all. All my other sport activities that I do with the kids are [listed here](/marcseparation/dad_kids_sport/). 
+
 ## Chloe dropped face first onto a tiled floor
 
 As per [this other section](/marcseparation/alex_mental_health/#chloe-dropped-face-first-onto-a-tiled-floor), this too was missed. When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
