@@ -6,7 +6,7 @@ last_modified_at: 2022-01-17
 toc: true
 ---
 
-Below are a list of contradictions that I found in the report, conflicting information. 
+Below are a list of contradictions that I found in the report, which is all conflicting information. Also, similar to this, be sure to check out [this page](/marcseparation/report_mistakes/) where I list all the mistakes in this report. 
 ### Fathers play a very important role for kids
 
 Alex was brought up with the belief that she thinks fathers play a very important role for kids
