@@ -13,7 +13,7 @@ I mentioned that one of the things I was most proud of was that I taught the kid
 
 ## Teaching the kids authority
 
-In direct contrast to Alex's [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) parenting style, I mentioned to Ruth about how my kids need to learn and respect authority. There's none of this in when the kids are with Alex, or her carers (sister Victoria & friend Bec) and it's important that they learn this, which is what I can provide. Good reason for the kids to learn to respect authority,I used the analogy of when the kids get their first job e.g. at McDonalds, if they don't understand to respect authority, there'll be zero tolerance to this and they'd most likely loose their job. Then later, it would be super challenging to get a second job with a bad reference from the first job. 
+In direct contrast to Alex's [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) parenting style, I mentioned to Ruth about how my kids need to learn and respect authority. There's none of this in when the kids are with Alex, or her carers (sister Victoria & friend Bec) and it's important that they learn this, which is what I can provide. Good reason for the kids to learn to respect authority, I used the analogy of when the kids get their first job e.g. at McDonalds, if they don't understand to respect authority, there'll be zero tolerance to this and they'd most likely lose their job. Then later, it would be super challenging to get a second job with a bad reference from the first job. 
 
 My parenting style is not corporal punishment at all, I teach authority respectfully with the kids, in such a way the kids are not alienated from me at all and I always have their love and respect. 
 
@@ -43,7 +43,7 @@ I am very instrumental in teaching the kids good moral and values. I used the ex
 
 ### Charlie Basketball coaching
 
-As I have documented [here](/marcseparation/dad_kids_sport/#charlie-basketball-coaching), I did mention to Ruth that I organised Basketball coaching for my son Charlie, but Ruth failed to mention this int he report, rather, she commented several times that I am against sport, against Saturday morning sport and mad me look like a really anti-sport person, which is not the fact at all. All my other sport activities that I do with the kids are [listed here](/marcseparation/dad_kids_sport/). 
+As I have documented [here](/marcseparation/dad_kids_sport/#charlie-basketball-coaching), I did mention to Ruth that I organised Basketball coaching for my son Charlie, but Ruth failed to mention this in the report, rather, she commented several times that I am against sport, against Saturday morning sport and mad me look like a really anti-sport person, which is not the fact at all. All my other sport activities that I do with the kids are [listed here](/marcseparation/dad_kids_sport/). 
 
 ## Chloe dropped face first onto a tiled floor
 
@@ -72,7 +72,7 @@ However this doesn't stop the kids:
 
 Alex's friend Bec (Rebecca) gave Charlie an iPad as a gift to use at Alex's place. As Alex and Bec weren't tech savvy, they simply handed it to Charlie and said, "**here you go**". [It's very well documented](https://support.apple.com/en-us/HT2013040), that you can **use parental controls on your child's iPhone, iPad, and iPod touch**. However this wasn't setup, so Charlie has free rein to anything that he wanted including all inappropriate content. What's more, Bec had signed Charlie in applications e.g. **Netflix** & **Disney+** with her account and no kids profiles were setup and no password/PIN protection from the adult content on **Netflix** & **Disney+**. It wasn't until months later that Charlie brought the iPad to my place, I had a look at it and I was shocked to see that my son (aged 10) had access to literally any movie he chose to watch with no protection at all from any inappropriate content. 
 
-This is another example of Alex's [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) / hands-off parenting style, leaves it up to Bec (someone else) to sign in with their account on **Netflix** & **Disney+**. It's not Bec's kids, she should just stay out of it. 
+This is another example of Alex's [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / permissive parenting style, leaves it up to Bec (someone else) to sign in with their account on **Netflix** & **Disney+**. It's not Bec's kids, she should just stay out of it. 
 
 Alex doesn't even have an account for **Netflix** & **Disney+** and is using Bec's account instead. As I mentioned, Alex is as she's [living well beyond her means](/marcseparation/child_support/) and simply cannot afford the monthly cost of the streaming services. 
 

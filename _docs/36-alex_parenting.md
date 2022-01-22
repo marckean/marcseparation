@@ -134,7 +134,7 @@ Seems to me that the way things are going, Alex is adopting her own mothers perm
 
 The **maternal** mother **Maree** allowed her very own daughter (**Julia Spence** (now dead)) to move out of her home when she was only 14. It's a bit worrying don't you think, if Alex is allowed to adopt the same parenting style of her mother, look how Julia turned out - she's now DEAD!
 
-**It can't get any clearer than this**, Alex is behind the scenes and very much has a [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) / hands-off parenting style. My daughter Chloe interviewed alone said it herself:
+**It can't get any clearer than this**, Alex is behind the scenes and very much has a Laissez-faire / Permissive parenting style as I have noted [just above](/marcseparation/alex_parenting/#alexs-parenting-style). My daughter Chloe interviewed alone said it herself:
 
 ![](../blobs/apexparenting/report_alexparenting4.png)
 
@@ -150,7 +150,7 @@ Why doesn't Alex put the kids in after school care? Well just like I mentioned i
 
 ### Aunty Vic - 5 star hotel pool
 
-Just like Alex's sister Victoria. Vic also parents just like her mother, same mother as Alex - [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) style. 
+Just like Alex's sister Victoria. Vic also parents just like her mother (same mother as Alex) with a [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) parenting style. 
 
 This is what I mentioned in the report:
 
@@ -218,4 +218,4 @@ However there's more to this with Chloe which Alex doesn't get as Alex is neurot
 
 ## Alex and my apartment
 
-What is really weird and backed up by my theory about Alex's [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) parenting style, plus my other theory of [Alex using the children for financial gain](/marcseparation/child_support/) - Alex has never ever been to my place, she has never seen my place and where our/her kids sleep when they are with me. Wouldn't any mother (or parent) want to know where their kids are sleeping if it's on an on-going arrangement? This tells me that she just doesn't care for the kids that much, and this adds significant weight to my two theories. 
+What is really weird and seems to back up by my theory about Alex's [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) parenting style, plus my other theory of [Alex using the children for financial gain](/marcseparation/child_support/) - Alex has never ever been to my place, she has never seen my place and where our/her kids sleep when they are with me. Wouldn't any mother (or parent) want to know where their kids are sleeping if it's on an on-going arrangement? This tells me that she just doesn't care for the kids that much, and this adds significant weight to my two theories. 

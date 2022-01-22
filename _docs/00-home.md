@@ -22,17 +22,17 @@ There are no **facts** in this report, it's all people's **opinions**. Opinions 
 
 There's no denying, the bulk of this report skewed towards the mother and is against me which makes me look like a real monster of a Dad - I'm not a monster of a Dad and this site proves that I am not a monster. There's certain aspects that been ignored (purposely or mistakenly), things taken out of context, spoken words not perceived clearly from what was mentioned in the room with a clear skewed view based on influence from particular neurotypical people interviewed.
 
-At the start of the session with **Ruth Selig**, I asked her how things would run in the session, as I saw her sitting there with a pen and paper. I asked if she would be recording the session (verbally) and she said "*no*", she's happy to manually write everything down pen/paper, a look on her face as if to say that this is normal, she does this every day and this is how she rolls. It's her interpretation of what I say in real time. Looking back, I should have asked if I could record the audio of the session for accuracy, as it was 95% me that did the talking. It's very common for people with Asperger's, everyone tells me that they can't read me, people read me the wrong way, people tell me that they can't read me at all and that things I say are miss-interpreted and I am always perceived differently to other people.
+At the start of the session with **Ruth Selig**, I asked her how things would run in the session, as I saw her sitting there with a pen and paper. I asked if she would be recording the session (verbally) and she said "*no*", she's happy to manually write everything down pen/paper, a look on her face as if to say that this is normal, she does this every day and this is how she rolls. It's her interpretation of what I say in real time. Looking back, I should have asked if I could record the audio of the session for accuracy, as it was 95% me that did the talking. It's very common for people with Asperger's, everyone tells me that they can't read me, people read me the wrong way, people tell me that they can't read me at all and that things I say are misinterpreted and I am always perceived differently to other people.
 
-Then we had two neurotypical people in the sessions (Alex & Bec), **Ruth Selig** would have been able to more easily interpret these people and read these people with more accuracy - it's no wonder this report is totally out of wack. 
+Then we had two neurotypical people in the sessions (Alex & Bec), **Ruth Selig** would have been able to more easily interpret these people and read these people with more accuracy - it's no wonder this report is totally out of whack. 
 
-Report writers need to remain neutral and leave all emotions out completely with these things - not the case here. There's a ton of things incorrect and this site is here to bring it all out in the open by using photos, audio and videos - media in these formats doesn't lie.
+Report writers need to remain neutral and leave all emotions out completely with these things - not the case here. There are a ton of things incorrect and this site is here to bring it all out in the open by using photos, audio and videos - media in these formats doesn't lie.
 
 **Note:** **I love my kids to bits**, why else would I go to so much trouble in putting this site together.
 
 ### Accuracy of the report
 
-There are many errors in this report. Like I was saying just above, someone's interpretation using a pen/paper to note things down is prone for for errors, humans are not perfect, they make mistakes. 
+There are many errors in this report. Like I was saying just above, someone's interpretation using a pen/paper to note things down is prone for errors, humans are not perfect, they make mistakes. 
 
 You need to seriously question the credibility of this report writer. I have documented the mistakes [here](/marcseparation/report_mistakes/).
 

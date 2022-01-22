@@ -9,7 +9,7 @@ As per [what I mentioned on the home page](/marcseparation/#the-family-report---
 
 At the start of the session with **Ruth Selig**, I asked her how things would run in the session, as I saw her sitting there with a pen and paper. I asked if she would be recording the session (verbally) and she said "*no*", she's happy to manually write everything down pen/paper, a look on her face as if to say that this is normal, she does this every day and this is how she rolls. It's her interpretation of what I say in real time. Looking back, I should have asked if I could record the audio of the session for accuracy, as it was 95% me that did the talking. It's very common for people with Asperger's, everyone tells me that they can't read me, people read me the wrong way, people tell me that they can't read me at all and that things I say are miss-interpreted and I am always perceived differently to other people. 
 
-Then we had two neurotypical people in the sessions (Alex & Bec), **Ruth Selig** would have been able to more easily interpret these people and read these people with more accuracy - it's no wonder this report is totally out of wack. 
+Then we had two neurotypical people in the sessions (Alex & Bec), **Ruth Selig** would have been able to more easily interpret these people and read these people with more accuracy - it's no wonder this report is totally out of whack. 
 
 Report writers need to remain neutral and leave all emotions out completely with these things - not the case here. There's a ton of things incorrect and this site is here to bring it all out in the open by using photos, audio and videos - media in these formats doesn't lie.
 
@@ -25,7 +25,7 @@ This is pretty serious!
 
 ![](../blobs/apexparenting/report_Laissez-faire.png)
 
-- The expert even confirms Alex's parenting style in the report being [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style), but curiously ignores the topic altogether, additionally choses to completely ignore the connection between Alex's parenting style, Alex's mother (Maree's) parenting style and Julia committing suicide. Rather, the report writer was quick to make a connection between my parents and my parenting style:
+- The expert even confirms Alex's parenting style in the report being [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style), but suspiciously ignores the topic altogether, additionally chooses to completely ignore the connection between Alex's parenting style, Alex's mother (Maree's) parenting style and Julia committing suicide. Rather, the report writer was quick to make a connection between my parents and my parenting style:
 
 ![](../blobs/apexparenting/report_father_mode_of_parenting.png)
 

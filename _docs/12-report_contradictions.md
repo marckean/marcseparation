@@ -86,7 +86,7 @@ This is a lot of conflicting information with this one.
 
 ![report_contradictions4](../blobs/reportcontradictions/report_contradictions7.png)
 
-- **Bec said** "*The less time with him the better, especially for Chloe. SHe fined is difficult to be vulnerable with Marc*"
+- **Bec said** "*The less time with him the better, especially for Chloe. She finds is difficult to be vulnerable with Marc*"
 
 ![report_contradictions4](../blobs/reportcontradictions/report_contradictions8.png)
 
