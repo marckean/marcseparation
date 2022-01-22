@@ -124,7 +124,7 @@ This is pure laziness from the report writer. She makes these mistakes, she can'
 
 - Never ever was there any type of financial abuse. We can check the history with the Commonwealth Bank. While Alex and I were together before separation (Nov 2019) we had joint credit Mastercards. Both cards attached to the same account. Both Alex had one, and I had one. Every month, there's history of me paying it off each month with my salary. 
 
-    On top of this, Alex has her own Commonwealth Bank account to where her wages $500/week was paid into, but mostly she had free rein and just used her credit card most of the time.
+    On top of this, Alex had her own Commonwealth Bank account to where her wages $500/week was paid into, but mostly she had free rein and just used her credit card most of the time.
 
 ### Kids WiFi
 
