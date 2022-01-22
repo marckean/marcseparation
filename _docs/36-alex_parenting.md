@@ -156,7 +156,7 @@ This is what I mentioned in the report:
 
 ![](../blobs/apexparenting/report_vic_5starthotel.png)
 
-There were other high paying guest at the hotel, it was embarrassing and Henry was running around out of control around the 5 start hotel pool. But just like her mother, Vic was totally in the background and hand-off to it all.
+There were other high paying guests at the hotel, it was embarrassing and Henry was running around out of control at the 5 star hotel pool. But just like her mother, Victoria was totally in the background and oblivious to it all, similar to that of her [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / Permissive parenting style, the same style as her own mothers.
 
 ### Saturday mornings
 

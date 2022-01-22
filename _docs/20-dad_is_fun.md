@@ -20,15 +20,15 @@ The report contained the following:
 
 ![](../blobs/lovedad/Report6.png)
 
-- Alex said about me "*He really loves them and he wouldn't hurt them. There is no domestic vioence*"
+- Alex said about me "*He really loves them and he wouldn't hurt them. There is no domestic violence*"
 
 ![](../blobs/lovedad/Report1.png)
 
-- *He already has failed to make his time a rich one for the children with child centered experiences*
+- *He already has failed to make his time a rich one for the children with child centred experiences*
 
 ![](../blobs/lovedad/Report2.png)
 
-- *Rather than picking up the que that they needed to go outside and do physical activity together*
+- *Rather than picking up the cue that they needed to go outside and do physical activity together*
 - **Comment from my Mum, the paternal grandmother** - saying the kids needed to go outside is just a statement…. They do what children do, annoy each other… They should also be able to entertain themselves – they shouldn’t need a parent to constantly amuse them.   Where is the credibility in the statement ‘*picking up the cue that they needed to go outside and do physical activity together*’…..     that is just a generalised statement… There are times when children just need to do what is asked – they are too young to realise the reasoning behind a request – they can have opinions, but ultimately the parent should make the decision.    What they do in their free time, is entirely their choice…
 
 
@@ -100,4 +100,4 @@ Other fun things I do with the kids, I made a fun tourist video with the kids wh
 
 ### My rebuttal
 
-The real story here. I am a big believer of self-defence, it's ok to defend yourself as long as it wasn't you that started it. I was always told as a kid to stand up for myself. I did a pretty crap job at it, but I was a big believer in it. Teachers won't be around everywhere to protect you, so I wanted my kids to learn this early in life, start early and develop good habits themselves rather than rely on **teachers** for example that won't be around all their life. I told the kids many times that if anyone hit them at school, hit them back straight away within a millisecond and say "*no*" in a big voice. I also told them very clearly to **never be the first one to hit** and **only** if someone hits them, then hit them back instantly. The thought process here is that the kids bullying doing the hitting in the first place will learn very quickly not to target kids that stand up for themselves, and then the bullier will move onto to the next kid. It's like the old saying with security in homes, the thieve breaking into homes, if your house is fully secure and locked up, they'll move on and target the weakest house. Same with a bullier, they'll tend to target the weakest and easiest kid.
+The real story here. I am a big believer of self-defence, it's ok to defend yourself as long as it wasn't you that started it. I was always told as a kid to stand up for myself. I did a pretty crap job at it, but I was a big believer in it. Teachers won't be around everywhere to protect you, so I wanted my kids to learn this early in life, start early and develop good habits themselves rather than rely on **teachers** for example that won't be around all their life. I told the kids many times that if anyone hit them at school, hit them back straight away within a millisecond and say "*no*" in a big voice. I also told them very clearly to **never be the first one to hit** and **only** if someone hits them, then hit them back instantly. The thought process here is that the kids bullying doing the hitting in the first place will learn very quickly not to target kids that stand up for themselves, and then the bullier will move onto to the next kid. It's like the old saying with security in homes, the thieves breaking into homes, if your house is fully secure and locked up, they'll move on and target the weakest house. Same with a bullier, they'll tend to target the weakest and easiest kid.

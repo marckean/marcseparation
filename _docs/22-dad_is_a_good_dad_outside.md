@@ -14,7 +14,7 @@ The report contained the following:
 
 ![](../blobs/lovedad/report_bec_bad_dad1.png)
 
-- This is crap, the kids love being with me. The below videos, you can see, th kids are more than happy spending time with me. 
+- This is crap, the kids love being with me. The below videos, you can see, the kids are more than happy spending time with me. 
 
 ![](../blobs/lovedad/report_bec_bad_dad2.png)
 

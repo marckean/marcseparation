@@ -79,9 +79,9 @@ On December 16, 2020 look how far out from the gutter that she parked on an alre
 
 ## Chloe dropped face first onto a tiled floor
 
-When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
+When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe rolls off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
 
-## Parking ticked left in machine
+## Parking ticket left in machine
 
 August 2, 2019 - At Nelson Bay, Alex bought parking ticket from a street parking vending machine across the road from where the car was parked, she then came back to the car and said "**Let's go kids, all done**" but she left the ticket in the machine and didn't put it in the car.
 
@@ -118,7 +118,7 @@ Half way through November I asked Alex to cancel the health cover (under her nam
 
 ### More detail
 
-Before Alex and I separated, I noticed water leaking through the kitchen bench through the joins of the granite bench top. So I removed the old sealant, cleaned it, then laid new sealant. After this I also put bright blue tape either side of the wet sealant like a road works warning, that would be easily noticed from the cornet of the eye, so that one would stay well clear of the sealant while it dries. This happened at about 4pm one afternoon. Just after I laid the sealant, I showed Alex how much of a great job it was, a perfect line of sealant, told her not to touch it as it needed to dry, and she acknowledged it.
+Before Alex and I separated, I noticed water leaking through the kitchen bench through the joins of the granite bench top. So I removed the old sealant, cleaned it, then laid new sealant. After this I also put bright blue tape either side of the wet sealant like a road works warning, that would be easily noticed from the corner of the eye, so that one would stay well clear of the sealant while it dries. This happened at about 4pm one afternoon. Just after I laid the sealant, I showed Alex how much of a great job it was, a perfect line of sealant, told her not to touch it as it needed to dry, and she acknowledged it.
 
 Later that same day at about 6.30pm (2.5 hours later) after dinner, I noticed the sealant line had been broken in 3 different sections – Alex was washing the dishes at the time right next to the sealant and I was on the other side of the bench and could easily see the sealant broken.
 
@@ -146,9 +146,9 @@ As evidence, the below are the photos I took, the photos of the sealant being br
 
 ## Tree loppers
 
-After Alex and I separated, and would be about 20 months afterwards. On 03/10/2021, tree loppers came to chop down next-door neighbours' trees alongside fence line pf the matrimonial home on the neighbour's side of the fence.
+After Alex and I separated, and would be about 20 months afterwards. On 03/10/2021, tree loppers came to chop down next-door neighbours' trees alongside fence line of the matrimonial home on the neighbour's side of the fence.
 
-This happened on a Sunday, I wasn’t aware. I did ask the neighbour (who I have a decent relationship with) to let me now, however he assumed he would let Alex know and she would let me know.
+This happened on a Sunday, I wasn’t aware. I did ask the neighbour (who I have a decent relationship with) to let me know, however he assumed he would let Alex know and she would let me know.
 
 I had the kids that weekend, I came to the house with the kids or another reason on that same day and while I was there I happened to notice the tree loppers that were there at the time. The side fence was wide open, Alex was not home and the dog was there. The dog **Ginger** is a cross between a Beagle & King Charles Cavalier and they like to wander off. Being a scent hound dog, the Beagle has been bred for centuries to follow his nose, this instinct is extremely strong. Most often, [a Beagle will run away to follow a scent](http://www.beaglepro.com/beagle-running-escaping).
 
@@ -159,10 +159,6 @@ The next door neighbour **Rolly** send me a screenshot of his correspondence wit
 ![](../blobs/alexmentalhealth/treelopersalex.jpg)
 
 Alex chose to ignore it. 
-
-## Chloe dropped face first onto a tiled floor
-
-When our daughter was a little baby and still in nappies. Alex was changing her nappy in the laundry, Alex put Chloe on the bench face up. Alex turns her back for a second, then Chloe roles off the bench and goes splat onto the tiled floor face down. Chloe would have fallen about 1+ meters.
 
 ## Ginger the dog on the back balcony
 
@@ -233,7 +229,7 @@ This is before we separated.
 
 > **Text from me**: I had a Mother’s Day breakfast booked for 9am this morning, but after last night I’m seriously thinking twice going.
 > 
-> Without yelling and loosing it, if you can help me understand why (if you are the one that cleans the dishes at night and stacks the dishwasher) why is it my fault if food gets left caked on the plates/dishes when they come out of the dishwasher?
+> Without yelling and losing it, if you can help me understand why (if you are the one that cleans the dishes at night and stacks the dishwasher) why is it my fault if food gets left caked on the plates/dishes when they come out of the dishwasher?
 > 
 > You better hurry up, because I know we’re going to have another fight this morning, you better choose your words carefully and think this through..... your goal, help me to understand the above - hurry
 > 

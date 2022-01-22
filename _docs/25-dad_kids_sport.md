@@ -28,6 +28,7 @@ toc: true
 ## My rebuttal
 
 I myself personally am not a big sporting person, I don't have an athletic bone in my body, this is similar to my daughter Chloe as she takes after me with this gene. I am not a natural at sports and need a lot of work/training, more than others. Hence why I have a personal trainer who I have been seeing 3 times a week for the past 2 years, it's all about staying on top of it, maintenance. It hasn't been easy, however the results after this 2 years speak for themselves: 
+
 - I was flat out doing 1 lap running around an oval. Now I can run 8kms non-stop. 
 - I couldn't even do 3 push-ups, now I can do 60 push-ups in one go
 - I was at 32% body fat in the beginning, I'm now down to 17% body fat
@@ -54,7 +55,7 @@ The statement in the report *He did not apparently take the children to their Sa
 
 ### Charlie Basketball coaching
 
-In the report it did a great job advertising the fact that I'm crap at encouraging kids to play sport. Over 2 years ago maybe, definitely not now. What wasn't mentioned in the report was that in the past two years since separation, and as a result of no Saturday morning sport, I took it upon myself and arranged & paid for Charlie to have one-on-one Basketball coaching. Alex knew about this great initiative of mine, but decided not to menton this in the report.
+In the report it did a great job advertising the fact that I'm crap at encouraging kids to play sport. Over 2 years ago maybe, definitely not now. What wasn't mentioned in the report was that in the past two years since separation, and as a result of no Saturday morning sport, I took it upon myself and arranged & paid for Charlie to have one-on-one Basketball coaching. Alex knew about this great initiative of mine, but decided not to mention this in the report.
 
 Since separation, on a weekend that I had the kids, I took Charlie to the Waitara PCYC to play Basketball, but I noticed that he didn't have the exact skills, he looked a little amateur in his style. I knew that it would be great if someone can work with Charlie one-on-one and teach him some invaluable skills so that he could use these new skills to really help him progress in his quest to be great at Basketball. 
 

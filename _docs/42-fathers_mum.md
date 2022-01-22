@@ -48,7 +48,7 @@ There are the snippets from the report (a mix of Alex's (the mother's) responses
 
 ![](../blobs/paternalgrandmother/63.png)
 
-- Alex also told Marc she wished Ian and I were dead – she wanted to claim some of Marc’s intended inheritance. 	I tried to remain neutral in their relationship issues, but after those 2 comments, Alex has lost any respect I may have had for her…… 	She thought I was on her side, but failed to acknowledge that Marc is my son, and even though I don’t agree with the way he has handled parts of his relationship, I will always give he and the children my support.
+- Alex also told Marc she wished Ian and I were dead – she wanted to claim some of Marc’s intended inheritance. 	I tried to remain neutral in their relationship issues, but after that comment from Alex and also after she blamed Marc for Julia's death, I lost any respect I may have had for her…… 	She thought I was on her side, but failed to acknowledge that Marc is my son, and even though I don’t agree with the way he has handled parts of his relationship, I will always give he and the children my support.
 
 ![](../blobs/paternalgrandmother/64.png)
 
