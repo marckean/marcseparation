@@ -66,3 +66,12 @@ In relation to the house being unlocked all the time, you can here my son who is
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
 </audio>
 
+## My kids are going backwards in school
+
+As per my note about the [kids performance in school](/marcseparation/alex_parenting/#kids-performance-at-school), the school reports from Asquith Public School indicate quite clearly that the kids (especially Charlie) are going backwards in his performance, which has been measured over the course of the last 12 months. 
+
+It's a serious concern as education is paramount to kids and with Charlie going into year 5 in 2022, this is a significant year. 
+
+It surprises me that Ruth didn't pick this up in this report as it is primarily **children** focused, this should have been an obvious topic to include in the report. 
+
+The risk here is that if not addressed, then he will fall further behind and come against him starting high school. 
