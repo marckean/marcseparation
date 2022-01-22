@@ -9,7 +9,7 @@ toc: true
 
 ![](../blobs/reportkidslookedafter/report_kidslookedafter1.png)
 
-- Alex's sister Victoria or Bec looking after the kids on Saturdays
+- *Two statements from Alex* - Alex's sister Victoria or Bec looking after the kids on Saturdays
 
 ![](../blobs/reportkidslookedafter/report_kidslookedafter2.png)
 
@@ -19,6 +19,8 @@ toc: true
 - Plus all the other issues with Victoria as listed [here](/marcseparation/alex_sister_victoria/).
 
 Now with all this information about Alex's sister Victoria, you really think it's a good idea that she looks after my kids? Of course not. 
+
+The below statement from Bec:
 
 ![](../blobs/beckids/report_bec_kids.png)
 
