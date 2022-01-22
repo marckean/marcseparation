@@ -109,6 +109,18 @@ These is hard core evidence that Alex's permissive parenting seems to be having 
 
 > Note: I haven't showed my daughter Chloe here as Chloe is parented different to Charlie, where Charlie is given much more freedom, however it worries me that Chloe will follow in Charlie's footsteps in years to come if nothing is done in terms of parenting e.g. more balance with their father. 
 
+Below the report writer indicates that she has read the school reports - as the she mentions here (from page 43):
+
+![](../blobs/apexparenting/report_school_reports.png)
+
+This is impossible as what I have included here are the real school reports for Charlie and a direct comparison between two of them. No one can argue, Charlie is going backwards, the markings don't lie.
+
+Another comment from the report writer:
+
+![](../blobs/apexparenting/report_school_reports2.png)
+
+- Above the report writer is openly saying Chloe's reports are glowing, but chooses to ignore Charlie's reports that do actually need to be addressed. This is of great concern as it adds further weight that the report writer is on Alex's side and making Alex look like the perfect parent.
+
 ## Dad and doesn't take kids to the park (False opinion from the report)
 
 What Charlie is meaning by this statement below, he means like what happens at his mothers place. Currently he's with his mother 71.4% of the time, so things that happen (rightly or wrongly) with his mother would seem routine to him:
