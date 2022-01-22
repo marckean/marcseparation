@@ -74,4 +74,4 @@ It's a serious concern as education is paramount to kids and with Charlie going 
 
 It surprises me that Ruth didn't pick this up in this report as it is primarily **children** focused, this should have been an obvious topic to include in the report. 
 
-The risk here is that if not addressed, then he will fall further behind and come against him starting high school. 
+The risk here is that if not addressed, then he will fall further behind and it will come against him starting high school. 
