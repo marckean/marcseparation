@@ -31,3 +31,13 @@ Rebecca (Bec) also is not exactly the best role model for any kids as I have men
 - Bec doesn't believe in parental controls for online streaming platforms such as Netflix, Disney+, Prime, Binge etc
 
 Having Bec look after my kids, not the best choice. 
+
+## Charlie looked after by Victoria
+
+There was a school holiday event called "**Free G Parkour**" on at the local PCYC in Waitara. On Wednesday January 19, Alex's sister Victoria took the kids, Charlie (my son) and his cousin Henry (Victoria's son). 
+
+However again due to the [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / permissive parenting style which I have documented, this parenting style runs rife throughout the Spence family with both Alex & Victoria. Just like her mother, Victoria parents the same way. 
+
+As a result, I had a phone call from Mikaila at the PCYC Monday January 24 (5 days later), Charlie's backpack had been left there, and I picked it up. It had Charlie's lunch box, water bottle and a camera. Neither ALex or Victoria even noticed that it had been missing. 
+
+![](../blobs/reportkidslookedafter/pcyc_charlie_backpack.png)
