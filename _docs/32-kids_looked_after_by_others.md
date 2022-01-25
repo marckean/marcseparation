@@ -38,6 +38,6 @@ There was a school holiday event called "**Free G Parkour**" on at the local PCY
 
 However again due to the [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / permissive parenting style which I have documented, this parenting style runs rife throughout the Spence family with both Alex & Victoria. Just like her mother, Victoria parents the same way. 
 
-As a result, I had a phone call from Mikaila at the PCYC Monday January 24 (5 days later), Charlie's backpack had been left there, and I picked it up. In it, it had Charlie's lunch box, water bottle and a camera. Neither ALex or Victoria even noticed that it had been missing. 
+As a result, I had a phone call from Mikaila at the PCYC Monday January 24 (5 days later), Charlie's backpack had been left there for 5 days, and I picked it up. In it, it had Charlie's lunch box, water bottle and a camera. Neither Alex or Victoria even noticed that it had been missing. 
 
 ![](../blobs/reportkidslookedafter/pcyc_charlie_backpack.png)
