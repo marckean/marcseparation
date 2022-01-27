@@ -35,7 +35,7 @@ The report writer has been influenced from somewhere. This is a direct cover up,
 
 ## Children are objects
 
-The report writer saying that I presume the children are objects as per:
+The report writer is saying that I presume the children are objects as per:
 
 ![](../blobs/reportwriterinfluence/report_children_are_objects.png)
 
