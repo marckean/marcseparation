@@ -2,7 +2,7 @@
 title: "Report Writer Influence"
 permalink: /report_writer_influence/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2022-01-23
+last_modified_at: 2022-01-29
 toc: true
 ---
 As per [what I mentioned on the home page](/marcseparation/#the-family-report---why-were-here), there's no denying, the bulk of this report is against me and makes me look like a real monster of a Dad - I'm not a monster of a Dad and this site proves that I am not a monster. There's certain aspects that been ignored (purposely or mistakenly), things taken out of context, spoken words not perceived clearly from what was mentioned in the room with a clear skewed view based on influence from particular neurotypical people interviewed. 
@@ -32,3 +32,15 @@ This is pretty serious!
 - Numerous places throughout the report, the report writer has real issues with the way that I parent, and a connection to my own parents parenting style, the report is littered with this, but no where is there a connection to Alex's parenting style copied from her mother, then Julia committing suicide is there?
 
 The report writer has been influenced from somewhere. This is a direct cover up, a totally one-sided view - whereas the report writer needs to remain neutral. It's clear the report writer didn't seem to like me in the session, but regardless of her own opinions of me in the session, she needs to overlook this, look at the bigger picture here. Either that, the report writer has another hidden agenda to try to cover up the mental illness that runs in Alex's family, also the Laissez-faire parenting style of Alex's mum that led to Julia's death. If we keep going with Alex copying the way her mother parented, and the kids continue spending the majority of the time with Alex, then my kids are at serious risk.  
+
+## Children are objects
+
+The report writer saying that I presume the children are objects as per:
+
+![](../blobs/reportwriterinfluence/report_children_are_objects.png)
+
+The report writer was totally incorrect with accusing me of treating the ***children as bargaining chips***. as I have explained [here](/marcseparation/experts_opinions/#kids-objects-bargaining-chips).
+
+However on the subject of treating the ***children as bargaining chips***, as per what I have written [here](/marcseparation/child_support/#evidence-of-using-the-children-for-financial-gain), I have provided enough information to prove that with Alex it's **money primary** and **children secondary**. Alex is clearly treating the ***children as bargaining chips***.
+
+The report writer has been influenced here substantially and has totally missed this. 
