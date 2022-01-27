@@ -159,7 +159,7 @@ I even mention it that the kids come for a run with me sometimes, this is Charli
 
 ![](../blobs/expertsopinions/report_kids_bargaining_chips.png)
 
-- The report writer has taken what I said in the session totally out of context. I didn't mention any connection between the kids of 50/50 care to that of financial settlement of a house. I simply said that having 50/50 custody with the kids then it would be better in terms of child support, whereas I'd spend the same amount of money on the kids as it can be spent on them directly, rather than via Alex where there's no guarantee that the money is actually being spent on the kids. 
+- The report writer has taken what I said in the session totally out of context. I didn't mention any connection between the kids of 50/50 care to that of financial settlement of a house. I simply said that having 50/50 custody with the kids then it would be better in terms of child support, whereas I'd spend the same amount of money on the kids but it can be spent on them directly, rather than via Alex where there's no guarantee that the money is actually being spent on the kids. 
 - I said that the mother, Alex was [using the children for financial gain](/marcseparation/child_support/), which is another subject the report writer totally ignored and didn't look into, as this report is totally skewed in Alex's favour.
 - As for the kids feeling unimportant and sidelined, the pages on this site negate this, e.g. [Dad is Fun](/marcseparation/dad_fun/), [Dad is a good Dad at home](/marcseparation/dad_is_a_good_dad_at_home/) and [Dad is a good Dad outside](/marcseparation/dad_is_a_good_dad_outside/)
 
