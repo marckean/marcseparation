@@ -41,6 +41,6 @@ The report writer is saying that I presume the children are objects as per:
 
 The report writer was totally incorrect with accusing me of treating the ***children as bargaining chips*** as I have explained [here](/marcseparation/experts_opinions/#kids-objects-bargaining-chips).
 
-However on the subject of treating the ***children as bargaining chips***, as per what I have written [here](/marcseparation/child_support/#evidence-of-using-the-children-for-financial-gain), I have provided enough information to prove that with Alex it's **money primary** and **children secondary**. Alex is clearly treating the ***children as bargaining chips***.
+If we flip this and change the focus to Alex and also on the subject of treating the ***children as bargaining chips***, as per what I have written [here about Alex using the children for financial gain](/marcseparation/child_support/#evidence-of-using-the-children-for-financial-gain), I have provided enough information to prove that with Alex it's **money primary** and **children secondary**. Alex is clearly treating the ***children as bargaining chips***.
 
 The report writer has been influenced here substantially and has totally missed this. 
