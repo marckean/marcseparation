@@ -2,7 +2,7 @@
 title: "Child Support"
 permalink: /child_support/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
-last_modified_at: 2022-01-23
+last_modified_at: 2022-01-29
 toc: true
 ---
 ## Statements from the report
@@ -52,6 +52,20 @@ The contradictions as [mentioned here](/marcseparation/report_contradictions/#ki
 Remember that I separated with Alex, not the kids. I love my kids to bits, why else would I go to so much trouble in putting this site together. I don't have an issue spending money on the kids, but I do have an issue spending money for the kids from behind the scenes via Alex, [I don't even get the pleasure of seeing my children benefit from the spending](/appendix_5050_custody/#7-financial-resources-are-shared-naturally).
 
 ![](../blobs/child_support_weakens_bond.png)
+
+#### Evidence of using the children for financial gain
+
+This is a message I sent to Alex last Saturday January 22, 2022. It’s in an attempt to catch her out, hoping she’d agree to the idea: 
+
+![](../blobs/childsupport/text_alex_child_support_whatif_5nights.png)
+
+If she does agree to it, then it proves that she’s **using the children for financial gain**, kids are not the priority for her, it’s purely money.
+
+Realistically, I wouldn’t go ahead with it, however this adds more evidence that Alex sees **money primary** and **children secondary** - should be the other way around. 
+
+At the time of writing, Alex hasn’t yet responded to me directly on this message, she hasn’t said no straight away to (whereas she normally does), which sort of indicates that my hunch is correct.
+
+TO BE UPDATED....
 
 ### Matrimonial home valuation, Alex blocking real valuations
 
