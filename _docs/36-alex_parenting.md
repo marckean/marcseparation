@@ -199,9 +199,10 @@ The children are left to their own devices. As I mentioned [here](/marcseparatio
 ### No structure
 
 Alex came from a broken family and never had proper structure growing up.
+
   - Her Dad was dead when she was a teenager
   - Her Dad broke up with the Mum and moved out when Alex was six years old
-  - Her Mum was very much hands-off / [Laissez-faire](https://www.encyclopedia.com/children/applied-and-social-sciences-magazines/laissez-faire-parents) parenting
+  - Her Mum had a very [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / permissive parenting style
 
 My kids need structure, then need to learn routine, rules, values & authority and this is exactly what I can provide. 
 
@@ -231,3 +232,52 @@ However there's more to this with Chloe which Alex doesn't get as Alex is neurot
 ## Alex and my apartment
 
 What is really weird and seems to back up by my theory about Alex's [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) parenting style, plus my other theory of [Alex using the children for financial gain](/marcseparation/child_support/) - Alex has never ever been to my place, she has never seen my place and where our/her kids sleep when they are with me. Wouldn't any mother (or parent) want to know where their kids are sleeping if it's on an on-going arrangement? This tells me that she just doesn't care for the kids that much, and this adds significant weight to my two theories. 
+
+## Online Safety
+
+Let's face it, I know 500 times more than Alex with this stuff. Alex doesn't get it. 
+
+### Google WiFi turned off at the house
+
+Why is this significant? Well for starters you can [automatically block millions of adult websites](https://support.google.com/googlenest/answer/7506043). As parents, we can rest a little easier with site blocking. We can use groups to set up site blocking, which uses **Google’s SafeSearch technology** to prevent millions of adult websites from showing on the kids’ devices and this works across all devices automatically at the internet gateway level. 
+
+Google WiFi's site blocking use [Google’s SafeSearch technology](https://support.google.com/websearch/answer/510?co=GENIE.Platform%3DDesktop) to help block millions of sexually explicit websites.
+
+- [Pause Wi-Fi access on demand](https://support.google.com/googlenest/answer/7535858#scheduled_pause)
+  - With Wi-Fi pause, you decide when your kids have access to the Internet on their devices. Keep your kids on task by pausing Wi-Fi for a group of devices in your mobile app or by voice through the Google Assistant.
+- [Schedule internet time-outs](https://support.google.com/googlenest/answer/7535858#scheduled_pause)
+  - Stop worrying if your kids are killing time online instead of sticking to their regular routine. Use groups in Family Wi-Fi to schedule Wi-Fi pauses during those predictable busy times like bedtime or homework time.
+- [Control multiple devices with groups](https://support.google.com/googlenest/answer/7197116)
+  - With groups, you can manage several devices together so you can pause, turn on site blocking, or create schedules with just a few taps.
+
+Before Alex and I separated, I had a 3 pack of **Google WiFi** devices in the house for the kids online safety as per this list immediately above. 
+
+![](../blobs/apexparenting/google_wifi_3pack.png)
+
+When I [reluctantly moved out of the matrimonial home](/marcseparation/my_initial_comments/#unfairly-judged-based-on-current-time-with-the-kids), I left one of the **Google WiFi** devices there (they can operate independently or as a group) and took the other two Google WiFi devices to my new temporary place. In the matrimonial home and using the single Google WiFi device, I setup a WiFi network called '**Daddy**' which anyone could use, with the best part that I had it setup for kids online safety as per above across all their devices. Likewise, I setup another WiFi network at my new temporary place with the same kids online safety.
+
+I did mention this to Alex since separation and told her for the kids to use the **Daddy** WiFi network as it was safe for the kids. 
+
+However since I moved out, Alex has disconnected this Google WiFi device in the matrimonial home, as you can see here:
+
+![](../blobs/apexparenting/DaddyWiFiNetwork.png)
+
+Kids are now using a default Telstra WiFi network and it means that the kids can access any website that wish with free and open access to millions of sexually explicit websites.
+
+### Charlie using unacceptable language online
+
+On Thursday January 27, 2022 Charlie's computer was going off with audio alerts constantly one after the other last night after both Charlie & Chloe went to bed. His computer is in his room and the sound was fairly loud; loud enough to be heard all over the home.
+
+I went in to see what was happening, it was Discord and some Discord group that Charlie was a member of, there were active members chatting over text after 10.30pm and even an audio call with 3 people in the group in the lead up to 11pm. Upon looking more into it, I could see the chat history and it seems that there's a whole bunch of expletives, tasteless and other unacceptable language for a boy at 10 y/o.
+
+Some screenshots of the profanity used:
+
+![](../blobs/apexparenting/discord_eeeee_fat_concrete.png)
+
+![](../blobs/apexparenting/discord_eeeee_fuck1.png)
+
+![](../blobs/apexparenting/discord_eeeee_fuck2.png)
+
+I spoke to Charlie about it this morning and he said that his friends at school, e.g. **James**, **James** has older siblings in high school where these siblings have added Charlie to this Discord group. Charlie's now mixing online with these high school kids and Charlie himself is using expletives e.g. the 'F' word with others in the group.
+
+This has been happening for over a week in both mine and Alex's care, however I managed to pick it up.
