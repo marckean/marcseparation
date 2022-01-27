@@ -33,7 +33,7 @@ Alex earns $32K~ / year, Vs me who earns $168K~ year. Alex clears about $500~ / 
 | 461921769 | $493.00 per month |
 | 779844644 | $1,777.00 per month |
 
-### Child Support Alex is receiving from me 
+### Child Support Alex is receiving from me
 
 Alex gets $2.2K Child Support per month from me. Alex pays me nothing to me in return.
 
