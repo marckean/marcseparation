@@ -2,7 +2,7 @@
 title: "Kids being looked after by other people"
 permalink: /kids_looked_after_by_others/
 excerpt: "Instructions on how to customize the theme's default set of layouts, includes, and stylesheets when using the Ruby Gem version."
-last_modified_at: 2022-01-23
+last_modified_at: 2022-01-25
 toc: true
 ---
 ## Statements from the report
@@ -31,3 +31,13 @@ Rebecca (Bec) also is not exactly the best role model for any kids as I have men
 - Bec doesn't believe in parental controls for online streaming platforms such as Netflix, Disney+, Prime, Binge etc
 
 Having Bec look after my kids, not the best choice. 
+
+## Charlie looked after by Victoria
+
+There was a school holiday event called "**Free G Parkour**" on at the local PCYC in Waitara. On Wednesday January 19, Alex's sister Victoria took the kids, Charlie (my son) and his cousin Henry (Victoria's son). 
+
+However again due to the [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / permissive parenting style which I have documented, this parenting style runs rife throughout the Spence family with both Alex & Victoria. Just like her mother, Victoria parents the same way. 
+
+As a result, I had a phone call from Mikaila at the PCYC Monday January 24 (5 days later), Charlie's backpack had been left there for 5 days, and I picked it up. In it, it had Charlie's lunch box, water bottle and a camera. Neither Alex or Victoria even noticed that it had been missing. 
+
+![](../blobs/reportkidslookedafter/pcyc_charlie_backpack.png)
