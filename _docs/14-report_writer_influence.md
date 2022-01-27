@@ -43,4 +43,4 @@ The report writer was totally incorrect with accusing me of treating the ***chil
 
 If we flip this and change the focus to Alex and also on the subject of treating the ***children as bargaining chips***, as per what I have written [here about Alex using the children for financial gain](/marcseparation/child_support/#evidence-of-using-the-children-for-financial-gain), I have provided enough information to prove that with Alex it's **money primary** and **children secondary**. Alex is clearly treating the ***children as bargaining chips***.
 
-The report writer has been influenced here substantially and has totally missed Alex's ulterior motive. 
+The report writer has been influenced by both Bec and Alex, as a result, Ruth has totally missed Alex's ulterior motive. 

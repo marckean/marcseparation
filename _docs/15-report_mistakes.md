@@ -106,6 +106,18 @@ This is pure laziness from the report writer. She makes these mistakes, she can'
 
 ## Other mistakes
 
+## Children are objects
+
+The report writer is saying that I presume the children are objects as per:
+
+![](../blobs/reportwriterinfluence/report_children_are_objects.png)
+
+The report writer was totally incorrect with accusing me of treating the ***children as bargaining chips*** as I have explained [here](/marcseparation/experts_opinions/#kids-objects-bargaining-chips) - the report writer misinterpreted what I said in the session. 
+
+If we flip this and change the focus to Alex and also on the subject of treating the ***children as bargaining chips***, as per what I have written [here about Alex using the children for financial gain](/marcseparation/child_support/#evidence-of-using-the-children-for-financial-gain), I have provided enough information to prove that with Alex it's **money primary** and **children secondary**. Alex is clearly treating the ***children as bargaining chips***.
+
+The report writer has totally missed Alex's ulterior motive. 
+
 ### Holiday time with the kids
 
 ![](../blobs/mistakes/report_time_holidays_alex.png)
