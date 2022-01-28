@@ -254,9 +254,9 @@ Before Alex and I separated, I had a 3 pack of **Google WiFi** devices in the ho
 
 ![](../blobs/apexparenting/google_wifi_3pack.png)
 
-When I [reluctantly moved out of the matrimonial home](/marcseparation/my_initial_comments/#unfairly-judged-based-on-current-time-with-the-kids), I left one of the **Google WiFi** devices there (they can operate independently or as a group) and took the other two Google WiFi devices to my new temporary place. In the matrimonial home and using the single Google WiFi device, I setup a WiFi network called '**Daddy**' which anyone could use, with the best part that I had it setup for kids online safety as per above across all their devices. Likewise, I setup another WiFi network at my new temporary place with the same kids online safety.
+When I [reluctantly moved out of the matrimonial home](/marcseparation/my_initial_comments/#unfairly-judged-based-on-current-time-with-the-kids), I left one of the **Google WiFi** devices there (they can operate independently or as a group) and took the other two Google WiFi devices to my new temporary place. In the matrimonial home and using the single Google WiFi device, I setup a WiFi network called '**Daddy**' which anyone could use, with the best part how I had it setup for kids online safety as per above across all their devices. Likewise, I setup another WiFi network at my new temporary place with the same kids online safety.
 
-I did mention this to Alex since separation and told her for the kids to use the **Daddy** WiFi network as it was safe for the kids. 
+I did mention this to Alex since separation and told her to ensure the kids to use the **Daddy** WiFi network and not to disconnect it as it was safe for the kids. 
 
 However since I moved out, Alex has disconnected this Google WiFi device in the matrimonial home in the spirit of [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / permissive parenting, as you can see here:
 
