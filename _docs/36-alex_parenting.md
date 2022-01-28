@@ -239,6 +239,8 @@ Let's face it, I know 500 times more than Alex with this stuff. Alex doesn't get
 
 ### Google WiFi turned off at the house
 
+Why is this significant? Well for starters, with Google WiFi you can [automatically block millions of adult websites](https://support.google.com/googlenest/answer/7506043). As parents, we can rest a little easier with site blocking. We can use groups to set up site blocking, which uses **Google’s SafeSearch technology** to prevent millions of adult websites from showing on the kids’ devices and this works across all devices automatically at the internet gateway level.
+
 Google WiFi's site blocking use [Google’s SafeSearch technology](https://support.google.com/websearch/answer/510?co=GENIE.Platform%3DDesktop) to help block millions of sexually explicit websites.
 
 - [Pause Wi-Fi access on demand](https://support.google.com/googlenest/answer/7535858#scheduled_pause)
