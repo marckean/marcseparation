@@ -239,7 +239,6 @@ Let's face it, I know 500 times more than Alex with this stuff. Alex doesn't get
 
 ### Google WiFi turned off at the house
 
-
 Google WiFi's site blocking use [Google’s SafeSearch technology](https://support.google.com/websearch/answer/510?co=GENIE.Platform%3DDesktop) to help block millions of sexually explicit websites.
 
 - [Pause Wi-Fi access on demand](https://support.google.com/googlenest/answer/7535858#scheduled_pause)
@@ -257,7 +256,7 @@ When I [reluctantly moved out of the matrimonial home](/marcseparation/my_initia
 
 I did mention this to Alex since separation and told her for the kids to use the **Daddy** WiFi network as it was safe for the kids. 
 
-However since I moved out, Alex has disconnected this Google WiFi device in the matrimonial home, as you can see here:
+However since I moved out, Alex has disconnected this Google WiFi device in the matrimonial home in the spirit of [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / permissive parenting, as you can see here:
 
 ![](../blobs/apexparenting/DaddyWiFiNetwork.png)
 
