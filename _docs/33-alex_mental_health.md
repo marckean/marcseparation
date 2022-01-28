@@ -227,13 +227,13 @@ A short pause, she spins this around and puts it back on me, it's my fault - the
 
 In the final week of January 2022, while the kids were in Alex's care, she took them away on holidays with her sister Victoria, her kids (Henry & Chelsea) and her husband (Andrew). During this time, Charlie calls me on the phone to say that while everyone was still in the outside hotel pool, he was back in the hotel room as he got sun burnt. 
 
-Later this week I get the kids, these are photos that show how bad the sunburn is:
+Later this week I get the kids, these are photos of Charlie's back that show how bad the sunburn is:
 
 ![](../blobs/alexmentalhealth/charlie_sunburn_2022_1.png)
 
 ![](../blobs/alexmentalhealth/charlie_sunburn_2022_2.png)
 
-As per Alex's [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / permissive parenting style and/or Alex's [depersonalisation disorder](/marcseparation/alex_mental_health/) Alex is not properly focusing on the kids. This day and age with all different types of sunscreen creams and sunscreen sprays available on the market, kids should never get sun burnt. As an example when the kids are with me, I use the sunscreen spray, it takes only a few minutes with no rubbing in required, and the kids are fully protected from the sun and it lasts all day. 
+As per Alex's [Laissez-faire](/marcseparation/alex_parenting/#alexs-parenting-style) / permissive parenting style and/or Alex's [depersonalisation disorder](/marcseparation/alex_mental_health/) Alex is not properly focusing on the kids. This day and age with all different types of sunscreen creams and sunscreen sprays available on the market, kids should never get sun burnt. As an example when the kids are with me, I use the sunscreen spray, it takes only a few minutes with no rubbing-in required, and the kids are fully protected from the sun and it lasts all day. 
 
 Charlie has fair skin, the more he gets sun burnt, this can lead to melanoma's or skin cancers when he get's older. 
 
