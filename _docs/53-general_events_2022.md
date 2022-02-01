@@ -6,7 +6,7 @@ last_modified_at: 2022-01-31
 toc: true
 ---
 
-## Last weekend of school holidays
+## Last weekend of school holidays 2022
 
 > Tuesday, December 28, 2021
 
@@ -26,8 +26,19 @@ So, back then when the emails were sent, in Alex's head, if she believed that sc
 
 ![](../blobs/generalevents/last_week_of_school_holidays_2.jpg)
 
-Now we know that school goes back on Tuesday February 1st, 2022. 
+Now (Thursday, January 26, 2022) we know that school goes back on Tuesday February 1st, 2022.
 
+Alex's email ***above*** clearly states that I can have the kids (27th 28th 29th), additionally, last month Alex was obviously bullshitting about Bec looking after the kids on Monday. Also, with only a day’s notice she tell me that you want to go away with the kids tomorrow night and making demands that I just need to comply. 
+
+> Wednesday, January 29, 2022
+
+![](../blobs/generalevents/last_week_of_school_holidays_2.jpg)
+
+Also, as per above, Alex is making plans with the kids when she already knows that I have the kids, seriously?????
+
+Alex only gave me a day’s notice about this Layla thing and conflicting information about Sunday night/Monday with Bec, so I said to Alex that I’ll drop the kids back to her Monday January 31st 2022. 
+ 
+I told her that in future, please be a little more respectful in the tone of her messaging, she's not better than me, she don’t demand our kids agenda, they are our kids, and we both need to plan and agree on things rather than her simply making plans for the kids even when she know's that I was meant to have the kids as per a prior agreement. Alex didn’t discuss the Layla thing with me, she just dumped it on me last minute and expected me to comply.
 ## School holidays ending
 
 An official letter from the school principal (dated: Tuesday, 25th January 2022) says for both Charlie & Chloe, they are to return to school in 2020 on Tuesday, February 1 2022.
