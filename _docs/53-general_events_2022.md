@@ -54,7 +54,21 @@ I get a text from Alex demanding the kids come back - note even after our origin
 
 ## Dropping the kids off
 
+> Monday, January 31, 2022
 
+Text message from Alex at 12:16pm:
+
+![](../blobs/generalevents/dropping_the_kids_off_2.jpg)
+
+Text message from Alex at 12:55pm:
+
+![](../blobs/generalevents/dropping_the_kids_off_3.jpg)
+
+Text message to Alex at 12:56pm:
+
+![](../blobs/generalevents/dropping_the_kids_off_1.jpg)
+
+I didn't mention the word '**midday**' anywhere, I was consistent all along and said "***after lunch***" on Monday.
 
 ## Kids with me on my allocated weekend
 
