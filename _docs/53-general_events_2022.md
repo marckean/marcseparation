@@ -18,33 +18,33 @@ Alex and I had an agreement that I have the kids, 27, 28, 29 January 2022 (last 
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/last_week_of_school_holidays_0.jpg"></p>
 
-On the same day, Alex's email to me, dated December 28, 2021 says that her BFF **Bec** is looking after the kids on Monday Jan 31:
+On this same day (December 28, 2021), another email from Alex says that her BFF **Bec** is looking after the kids on Monday Jan 31:
 
 ![](../blobs/generalevents/last_week_of_school_holidays_1.jpg)
 
 > Thursday, December 30, 2021
 
-However, this contradicts Alex's other email she sent to me dated December 30, 2021 (two days later) where she said school goes back on the Friday January 28, 2022:
+However, this email about Bec contradicts Alex's other email she sent to me dated December 30, 2021 (two days later) where she said school goes back on the Friday January 28, 2022:
 
 ![](../blobs/generalevents/last_week_of_school_holidays_2.jpg)
 
-So, back then when the emails were sent, in Alex's head, if she believed that school went back on the Friday January 28, 2022, then **Bec** can’t have possibly had plans to look after the kids on the following Monday, as the kids would have been in school.
+So, back then when the emails were sent, in Alex's head, **if she believed** that school went back on the Friday January 28, 2022, then **Bec** can’t have possibly had plans to look after the kids on the following Monday, as the kids would have been in school.
 
-Now (Thursday, January 26, 2022), as new information that came through since, we know that [school goes back](/marcseparation/general_events_2022/#school-holidays-ending) on Tuesday February 1st, 2022.
+Now (Thursday, January 26, 2022), as new **return to school** information has come through since then, we know that [school goes back](/marcseparation/general_events_2022/#school-holidays-ending) on Tuesday February 1st, 2022, and not the previous Friday *as the original messaging from the school*.
 
 Alex's email ***above*** clearly states that I can have the kids (January 27th, 28th, 29th, 2022), additionally, last month Alex was obviously bullshitting about Bec looking after the kids on Monday.
 
 > Friday, January 28, 2022
 
-Alex sends me an email to let me know that Chloe has a play date organised with Chloe's friend Emma on **Monday afternoon**:
+Alex sends me an email to let me know that Chloe has a play date organised with Chloe's friend Emma on **Monday afternoon** (January 31, 2022):
 
 ![](../blobs/generalevents/last_week_of_school_holidays_4.jpg)
 
- So ok, **Monday afternoon** would mean **Monday after lunch**. See [below](/marcseparation/general_events_2022/#dropping-the-kids-off).
+ So ok, **Monday afternoon** for Emma's play date would mean **Monday after lunch**. See [below](/marcseparation/general_events_2022/#dropping-the-kids-off).
 
 > Wednesday, January 26, 2022
 
-Also, with only a day’s notice she sends me a text saying that she wants to go away with the kids tomorrow night with Layla and making demands that I just need to comply. 
+Also, with only a day’s notice Alex sends me a text saying that she wants to go away with the kids tomorrow night with Layla and making demands that I just need to comply. 
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/last_week_of_school_holidays_3.jpg"></p>
 
@@ -64,7 +64,7 @@ An official letter from the school principal (dated: Tuesday, 25th January 2022)
 
 ![](../blobs/generalevents/aps_2022_return_to_school.png)
 
-Most schools are also due to go back with the first day back at school Tuesday, February 1, 2022.
+Most other schools are also due to go back with the first day back at school Tuesday, February 1, 2022.
 
 Although from [the NSW government website](https://www.nsw.gov.au/living-in-nsw/school-holidays), it says school holidays end Friday, January 28, 2022.
 
@@ -72,7 +72,7 @@ Although from [the NSW government website](https://www.nsw.gov.au/living-in-nsw/
 
 > Friday, January 28, 2022
 
-I get a text from Alex demanding the kids come back - this is even after our original agreement with the kids where they are to spend the [last weekend of the school holidays with me](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022). 
+I get a text from Alex demanding the kids come back - this is even after our original agreement with the kids where they are to spend this [last weekend of the school holidays with me](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022). 
 
 She expects me to drop the kids back on the Friday, January 28, 2022 (I ignore this first text):
 
@@ -80,15 +80,15 @@ She expects me to drop the kids back on the Friday, January 28, 2022 (I ignore t
 
 > Saturday, January 29, 2022
 
-Alex sends another text about ths school holidays that have ended. So I send a copy of the letter from the school that says school goes back Tuesday, February 1, 2022.
+A day later, Alex sends another text about ths school holidays that have ended. So I send a copy of the letter from the school that says school goes back Tuesday, February 1, 2022.
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/School_holidays_ending_2.jpg"></p>
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/School_holidays_ending_3.png"></p>
 
-- Alex says "***School went back on Friday***" WTF? The official letter from the school clearly states that school goes back Tuesday, February 1, 2022. Is she completely mental?
+- Alex says "***School went back on Friday***" WTF? The official letter from the school clearly states that school goes back Tuesday, February 1, 2022. Is she completely dumb?
 
-Then she starts to talk about a double weekend: 
+Then she starts to talk about a double weekend (which comes to light [further below](/marcseparation/general_events_2022/#kids-with-me-on-my-allocated-weekend)): 
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/School_holidays_ending_4.jpg"></p>
 
@@ -104,14 +104,14 @@ Text message from Alex:
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/dropping_the_kids_off_2.jpg"></p>
 
-- Wait a second, the messages Alex [sent above](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022) clearly say that Chloe has a play date with Emma on Monday afternoon and at 12:16pm, Emma is waiting? 
-- Also, where did I say the word **midday**? No where. I was clear and precise all along, I always said I'd drop the kids back to her Monday after lunch. 
+- Wait a second, the messages Alex [sent above](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022) clearly say that Chloe has a play date with Emma on Monday afternoon, and at 12:16pm Emma is waiting? This is not Monday afternoon for a play date at all, it sounds like a lunchtime play date.  
+- Also, where did I say the word **midday**? No where. I was very clear and precise all along, I always said I'd drop the kids back to her Monday after lunch. 
 
 Text message from Alex at 12:55pm, there's an actual photo of my email that she's finally found, she's even highlighted the bit where I said after lunchtime, but again, she says **midday**! WTF - has Alex gone completely fucked in the head:
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/dropping_the_kids_off_3.jpg"></p>
 
-Text message to Alex at 12:56pm. I send ALex two copies of my emails which clearly mention I'd drop the kids back Monday after lunch:
+Text message to Alex at 12:56pm. I text Alex two copies of my emails which clearly mention I'd drop the kids back Monday after lunch:
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/dropping_the_kids_off_1.jpg"></p>
 
@@ -119,7 +119,7 @@ Text message to Alex at 12:56pm. I send ALex two copies of my emails which clear
 
 I didn't mention the word '**midday**' anywhere, I was consistent all along and said "***after lunch***" on Monday.
 
-Alex mentally screwed int he head.
+Alex is mentally screwed in the head.
 
 ## Kids with me on my allocated weekend
 
@@ -129,9 +129,9 @@ As per a very simple court order, it says:
 
 ![](../blobs/generalevents/my_allocated_weekend_1.jpg)
 
-You'd think it would be so simple, to just track this back to this date **Thursday 12 November 2020** and every fortnight from there is my allocated weekends with my kids. 
+You'd think it would be so simple, to just track this back to this date **Thursday 12 November 2020** and then every fortnight from there is my allocated weekends with my kids. 
 
-I do exactly this and I'm due to have the kids this coming Thursday 3 February, 2022. 
+So I did exactly that, I tracked it back and I'm due to have the kids this coming Thursday 3 February, 2022. 
 
 As I knew this wold be another issue Alex would have a problem with, I emailed her very clearly explaining this:
 
