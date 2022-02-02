@@ -12,9 +12,17 @@ She seriously needs to be checked by a doctor or something, because this stuff i
 
 ## Last weekend of school holidays 2022
 
+> Saturday, December 25, 2021
+
+Alex and I had an agreement that I have the kids, 27, 28, 29 January 2022 (last weekend of school holidays), as per this email...
+
+I asked for 27th - 30th January:
+
+![](../blobs/generalevents/last_week_of_school_holidays_5.jpg)
+
 > Tuesday, December 28, 2021
 
-Alex and I had an agreement that I have the kids, 27, 28, 29 January 2022 (last weekend of school holidays), as per this email:
+Then Alex confirmed the dates were ok:
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/last_week_of_school_holidays_0.jpg"></p>
 
