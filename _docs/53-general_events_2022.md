@@ -2,9 +2,13 @@
 title: "General Events 2022"
 permalink: /general_events_2022/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2022-01-31
+last_modified_at: 2022-02-02
 toc: true
 ---
+
+Whatever [mental issue Alex has](/marcseparation/alex_mental_health/) going on in her head, it's much worse than before.
+
+She seriously needs to be checked by a doctor or something, because this stuff is beyond belief. 
 
 ## Last weekend of school holidays 2022
 
@@ -82,12 +86,11 @@ Alex sends another text about ths school holidays that have ended. So I send a c
 
 ![](../blobs/generalevents/School_holidays_ending_3.png)
 
-- Alex says "***School went back on Friday***" WTF? The letter clearly says school goes back Friday, January 28, 2022. Is she completely mental?
+- Alex says "***School went back on Friday***" WTF? The official letter from the school clearly states that school goes back Tuesday, February 1, 2022. Is she completely mental?
 
 Then she starts to talk about a double weekend: 
 
 ![](../blobs/generalevents/School_holidays_ending_4.jpg)
-
 
 
 ## Dropping the kids off
@@ -96,9 +99,9 @@ As per [above](/marcseparation/general_events_2022/#last-weekend-of-school-holid
 
 But on Monday itself, I get a text message from Alex.
 
-> Monday, January 31, 2022
+> Monday, January 31, 2022 - 12:16pm
 
-Text message from Alex at 12:16pm:
+Text message from Alex:
 
 ![](../blobs/generalevents/dropping_the_kids_off_2.jpg)
 
@@ -121,4 +124,48 @@ Alex mentally screwed int he head.
 
 ## Kids with me on my allocated weekend
 
+As per a very simple court order, it says:
 
+> Commencing Thursday 12 November 2020, the  children shall spend time with the father every alternate weekend from Thursday after school, or 3.30 pm if a non-school day, until before school Monday or 9.00 am if a non-school day
+
+![](../blobs/generalevents/my_allocated_weekend_1.jpg)
+
+You'd think it would be so simple, to just track this back to this date **Thursday 12 November 2020** and every fortnight from there is my allocated weekends with my kids. 
+
+I do exactly this and I'm due to have the kids this coming Thursday 3 February, 2022. 
+
+As I knew this wold be another issue Alex would have a problem with, I emailed her very clearly explaining this:
+
+> Saturday, January 29, 2022
+
+![](../blobs/generalevents/my_allocated_weekend_2.jpg)
+
+You'd think it would be so simple, but like I anticipated, she had issues with it.
+
+This is Alex's reply:
+
+![](../blobs/generalevents/my_allocated_weekend_3.jpg)
+
+Another reply from Alex:
+
+![](../blobs/generalevents/my_allocated_weekend_4.jpg)
+
+I send a reply to Alex:
+
+> The holidays don’t affect the fortnightly rotation. Never has, never will. This is exactly how we’ve been operating since November 12, 2020
+>
+>It's a court order - I'm not discussing this with you any further, if you don't get this, not my problem. I explained it very clearly below. Or read the court order.
+
+> Wednesday, February 2, 2022
+
+After no more correspondence and as my time with the kids again was fast approaching, I send a follow up to Alex:
+
+![](../blobs/generalevents/my_allocated_weekend_5.jpg)
+
+Alex replies:
+
+![](../blobs/generalevents/my_allocated_weekend_6.jpg)
+
+Then she replies again:
+
+![](../blobs/generalevents/my_allocated_weekend_7.jpg)
