@@ -140,6 +140,8 @@ As I knew this wold be another issue Alex would have a problem with, I emailed h
 
 ![](../blobs/generalevents/my_allocated_weekend_2.jpg)
 
+The attachment that I sent to Alex in this email listed all the weekends in order from **Thursday 12 November 2020** onwards. I made it so clear and I highlighted all the alternating weekends from this date. [Download this attachment from here](../blobs/generalevents/202011%202021%20care%20arrangements%20(school%20rotations).pdf).
+
 You'd think it would be so simple, but like I anticipated, she had issues with it.
 
 This is Alex's reply:
