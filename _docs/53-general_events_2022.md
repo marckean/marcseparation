@@ -16,7 +16,7 @@ She seriously needs to be checked by a doctor or something, because this stuff i
 
 Alex and I had an agreement that I have the kids, 27, 28, 29 January 2022 (last weekend of school holidays), as per this email:
 
-![](../blobs/generalevents/last_week_of_school_holidays_0.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/last_week_of_school_holidays_0.jpg"></p>
 
 On the same day, Alex's email to me, dated December 28, 2021 says that her BFF **Bec** is looking after the kids on Monday Jan 31:
 
@@ -46,7 +46,7 @@ Alex sends me an email to let me know that Chloe has a play date organised with 
 
 Also, with only a day’s notice she sends me a text saying that she wants to go away with the kids tomorrow night with Layla and making demands that I just need to comply. 
 
-![](../blobs/generalevents/last_week_of_school_holidays_3.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/last_week_of_school_holidays_3.jpg"></p>
 
 Alex is making plans with the kids when she already knows that I have the kids, seriously?????
 
@@ -76,22 +76,21 @@ I get a text from Alex demanding the kids come back - this is even after our ori
 
 She expects me to drop the kids back on the Friday, January 28, 2022 (I ignore this first text):
 
-![](../blobs/generalevents/School_holidays_ending_1.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/School_holidays_ending_1.jpg"></p>
 
 > Saturday, January 29, 2022
 
 Alex sends another text about ths school holidays that have ended. So I send a copy of the letter from the school that says school goes back Tuesday, February 1, 2022.
 
-![](../blobs/generalevents/School_holidays_ending_2.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/School_holidays_ending_2.jpg"></p>
 
-![](../blobs/generalevents/School_holidays_ending_3.png)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/School_holidays_ending_3.png"></p>
 
 - Alex says "***School went back on Friday***" WTF? The official letter from the school clearly states that school goes back Tuesday, February 1, 2022. Is she completely mental?
 
 Then she starts to talk about a double weekend: 
 
-![](../blobs/generalevents/School_holidays_ending_4.jpg)
-
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/School_holidays_ending_4.jpg"></p>
 
 ## Dropping the kids off
 
@@ -103,18 +102,18 @@ But on Monday itself, I get a text message from Alex.
 
 Text message from Alex:
 
-![](../blobs/generalevents/dropping_the_kids_off_2.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/dropping_the_kids_off_2.jpg"></p>
 
 - Wait a second, the messages Alex [sent above](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022) clearly say that Chloe has a play date with Emma on Monday afternoon and at 12:16pm, Emma is waiting? 
 - Also, where did I say the word **midday**? No where. I was clear and precise all along, I always said I'd drop the kids back to her Monday after lunch. 
 
 Text message from Alex at 12:55pm, there's an actual photo of my email that she's finally found, she's even highlighted the bit where I said after lunchtime, but again, she says **midday**! WTF - has Alex gone completely fucked in the head:
 
-![](../blobs/generalevents/dropping_the_kids_off_3.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/dropping_the_kids_off_3.jpg"></p>
 
 Text message to Alex at 12:56pm. I send ALex two copies of my emails which clearly mention I'd drop the kids back Monday after lunch:
 
-![](../blobs/generalevents/dropping_the_kids_off_1.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/dropping_the_kids_off_1.jpg"></p>
 
 - Then for a third time, she says **midday** again!!!
 
@@ -150,7 +149,7 @@ This is Alex's reply:
 
 Another reply from Alex:
 
-![](../blobs/generalevents/my_allocated_weekend_4.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/my_allocated_weekend_4.jpg"></p>
 
 I send a reply to Alex:
 
@@ -162,11 +161,11 @@ I send a reply to Alex:
 
 After no more correspondence and as my time with the kids again was fast approaching, I send a follow up to Alex:
 
-![](../blobs/generalevents/my_allocated_weekend_5.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="500" src="../blobs/generalevents/my_allocated_weekend_5.jpg"></p>
 
 Alex replies:
 
-![](../blobs/generalevents/my_allocated_weekend_6.jpg)
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/my_allocated_weekend_6.jpg"></p>
 
 Then she replies again:
 
