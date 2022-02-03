@@ -210,7 +210,9 @@ Alex has disobeyed the court order again, as she needs to let the other parent (
 
 > Sunday January 30, 2022
 
-As I have already mentioned, [Chloe has had a niggling cough for 4+ months](/marcseparation/co_parenting/), Alex hasn’t done anything about it. She need to take Chloe to an ENT specialist. Below are the recordings from when I had the kids Sunday January 30, 2022. I took the kids to Luna Park, it was a hot day, wasn't cold. We were standing in line and everyone kept looking at us, not liking Chloe coughing and thinking it was COVID-19. 
+As I have already mentioned, [Chloe has had a niggling cough for 4+ months](/marcseparation/co_parenting/), Alex hasn’t done anything about it. She need to take Chloe to an ENT specialist. Below are the recordings from when I had the kids Sunday January 30, 2022. I took the kids to Luna Park, it was a hot day, wasn't cold. We were standing in line and everyone kept looking at us, not liking Chloe coughing and thinking it was COVID-19.
+
+Listen to the 3 recordings of Chloe constantly coughing:
 
 <audio src="../audio/Chloe coughing Lina Park, 1 20220130.mp3" type="audio/mpeg" controls>
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
