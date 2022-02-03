@@ -26,6 +26,10 @@ Then Alex confirmed the dates were ok:
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/last_week_of_school_holidays_0.jpg"></p>
 
+Alex even highlighted in a calendar the times she agreed for me to have the kids, in green:
+
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/last_week_of_school_holidays_6.jpg"></p>
+
 On this same day (December 28, 2021), another email from Alex says that her BFF **Bec** is looking after the kids on Monday Jan 31:
 
 ![](../blobs/generalevents/last_week_of_school_holidays_1.jpg)
