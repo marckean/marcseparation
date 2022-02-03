@@ -64,7 +64,7 @@ Also, with only a day’s notice Alex sends me a text saying that she wants to g
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="400" src="../blobs/generalevents/last_week_of_school_holidays_3.jpg"></p>
 
-Alex is making plans with the kids when she already knows that I have the kids, seriously?????
+Alex is making plans with the kids when she already knows that I have the kids at this time, seriously?????
 
 > Thursday, January 27, 2022
 
