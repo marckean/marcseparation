@@ -68,7 +68,7 @@ Alex is making plans with the kids when she already knows that I have the kids a
 
 > Thursday, January 27, 2022
 
-Alex only gave me a day’s notice about this Layla thing in my time with the kids, also she gave me conflicting information about Sunday night/Monday with **Bec**. 
+Alex only gave me a day’s notice about this Layla thing that she planned in my time with the kids, also she gave me conflicting information about Sunday night/Monday with **Bec**. 
 
 Based on this, I emailed Alex and told her that I’ll feed the kids lunch, then drop the kids back to her **after lunch** on Monday, January 31st, 2022. This is also to accommodate Alex, so that Chloe can have a play date with Emma. 
  
