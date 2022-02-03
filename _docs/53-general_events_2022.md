@@ -8,7 +8,11 @@ toc: true
 
 Whatever [mental issue Alex has](/marcseparation/alex_mental_health/) going on in her head, it's much worse than before.
 
-She seriously needs to be checked by a doctor or something, because this stuff is beyond belief. 
+She seriously needs to be checked by a doctor or something, because this stuff is beyond belief.
+
+- Alex has disobeyed the court order twice, section 3 and section 24
+- Alex can't even [read an actual date](/marcseparation/general_events_2022/#school-holidays-ending) from a letter from the school
+- Alex thinks that **after lunch** is **midday**, details [here](/marcseparation/general_events_2022/#dropping-the-kids-off). 
 
 ## Last weekend of school holidays 2022
 
@@ -182,3 +186,21 @@ Alex replies:
 Then she replies again:
 
 ![](../blobs/generalevents/my_allocated_weekend_7.jpg)
+
+More back and forwards over email and get no where. 
+
+> Thursday, February 3, 2022
+
+I go to the school to pick up the kids, I'm waiting outside the gate at 2.55pm when the bell rings. Then shortly later the principal **Karan McDonnell** comes out to tell me that Alex had already come to the school early to grab the kids:
+
+<iframe width="420" height="315"
+    src="https://www.youtube.com/embed/Qu6nnrWju98?playlist=Qu6nnrWju98&loop=1&Version=3&autoplay=1&mute=1&showinfo=1&rel=0">
+</iframe>
+
+Problem now is that now Alex has the kids, as per the court order, next weekend isn't my weekend, so Alex can easily play her games again and do this again. Which means I would miss out two weekends in a row. 
+
+The other thing, Alex's excuse to pick up the kids from school was that the kids needed to go to a medical appointment.
+
+Alex has disobeyed the court order again, as she needs to let the other parent (me) know about any medical care:
+
+![](../blobs/generalevents/my_allocated_weekend_8.jpg)
