@@ -205,3 +205,21 @@ The other thing, Alex's excuse to pick up the kids from school was that the kids
 Alex has disobeyed the court order again, as she needs to let the other parent (me) know about any medical care:
 
 ![](../blobs/generalevents/my_allocated_weekend_8.jpg)
+
+## Chloe's cough
+
+> Sunday January 30, 2022
+
+As I have already mentioned, [Chloe has had a niggling cough for 4+ months](/marcseparation/co_parenting/), Alex hasn’t done anything about it. She need to take Chloe to an ENT specialist. Below are the recordings from when I had the kids Sunday January 30, 2022. I took the kids to Luna Park, it was a hot day, wasn't cold. We were standing in line and everyone kept looking at us, not liking Chloe coughing and thinking it was COVID-19. 
+
+<audio src="../audio/Chloe coughing Lina Park, 1 20220130.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
+<audio src="../audio/Chloe coughing Lina Park, 2 20220130.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
+<audio src="../audio/Chloe coughing Lina Park, 3 20220130.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>

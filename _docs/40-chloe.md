@@ -17,3 +17,19 @@ Chloe's test result below:
 ![](../blobs/chloe/Childhood_Autism_Spectrum_Test_Score.png)
 
 I know my daughter fairly well, and like I assumed, it looks like she's like me, has my genes and has Asperger's syndrome. 
+
+## Chloe's cough
+
+As I have already mentioned, [Chloe has had a niggling cough for 4+ months](/marcseparation/co_parenting/), Alex hasn’t done anything about it. She need to take Chloe to an ENT specialist. Below are the recordings from when I had the kids Sunday January 30, 2022. I took the kids to Luna Park, it was a hot day, wasn't cold. We were standing in line and everyone kept looking at us, not liking Chloe coughing and thinking it was COVID-19. 
+
+<audio src="../audio/Chloe coughing Lina Park, 1 20220130.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
+<audio src="../audio/Chloe coughing Lina Park, 2 20220130.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
+<audio src="../audio/Chloe coughing Lina Park, 3 20220130.mp3" type="audio/mpeg" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
