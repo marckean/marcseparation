@@ -15,7 +15,9 @@ toc: true
 
 - Then Alex practically spells it out, she's not willing to allow me more time with the kids as then she gets less money from child support and screws up her plans for a mortgage
 
-- Also below, recently, February 27, 2022, Alex mentions something similar to another person of whom she trusts, but this other person shared me the screenshot of what Alex said to her. The context here, Alex believes that as the 3 houses sold from the trust during the last financial year and as she declared this as income, than it's effecting this current financial year and she's now only getting $200/week from **child support**, however as I had already told this other person what is really happening, this other person told Alex that it doesn't effect this financial year and that **child support** is more than $200/week. Alex says, if it's true she's be happy to have **child support** payments to reflect me having the kids 5 nights a fortnight:
+## Statement from Alex, a text message to a third party
+
+- Below, recently, February 27, 2022, Alex mentions something similar to another person of whom she trusts, but this other person shared me the screenshot of what Alex said to her. The context here, Alex believes that as the 3 houses sold from the trust during the last financial year and as she declared this as income, than it's effecting this current financial year and she's now only getting $200/week from **child support**, however as I had already told this other person what is really happening, this other person told Alex that it doesn't effect this financial year and that **child support** is more than $200/week. Alex says, if it's true she's be happy to have **child support** payments to reflect me having the kids 5 nights a fortnight:
 
 ![](../blobs/childsupport/signal-2022-02-26-154736.jpeg)
 
