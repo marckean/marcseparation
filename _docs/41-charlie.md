@@ -26,7 +26,7 @@ Knowing Alex like I know Alex, especially when very recently when [Chloe had a C
 
 When I asked **NSW Health** the two questions, about the latest rules for a young 11y/0 in a shared card arrangement and who is a positive case for Covid19 and also the penalties for breaching a public health order, they pointed me int he direction of the information on their website:
 
-![](../blobs/CharlieCovid19/shared%20card%20arrangements%202022-08-09%20085134.png
+![](../blobs/CharlieCovid19/shared%20card%20arrangements%202022-08-09%20085134.png)
 
 ![](../blobs/CharlieCovid19/breaching%20a%20public%20health%20order%202022-08-09%20085003.png)
 
