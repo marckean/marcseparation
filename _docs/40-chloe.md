@@ -35,3 +35,7 @@ Listen to the 3 recordings of Chloe constantly coughing:
 <audio src="../audio/Chloe coughing Lina Park, 3 20220130.mp3" type="audio/mpeg" controls>
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
 </audio>
+
+## Chloe Covid test
+
+On December 13, 2021 Chloe had a a cough, the school told us that she needed to get a Covid test, so we did and then she had to self isolate until a negative result, however Alex (and the Police) seemed to have a blatant disregard for the rules [this led to Alex calling the Police](/marcseparation/chloe_covid_test/) with a whole bunch of other dramas. 
