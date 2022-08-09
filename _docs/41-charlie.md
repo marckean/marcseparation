@@ -62,9 +62,19 @@ In this time, my lawyer **Brendan** calls me and tells me that Alex's lawyer **K
 
 I left this.
 
-Also in the meantime, I spoke with Alex on the phone, told her that organising an urgent court hearing will take weeks and not days and that Charlie would be out of isolation by then. I also said I was not prepared to take the risk of getting a $5000 fine from **NSW Health**.
+Also in the meantime, Alex sends me a text to say that she's be at my place at 4.45pm to pick up Charlie:
 
-She then said she'd pay me and transfer the $5000 to my account if she could pick him up. Beyond my belief, she paid thr $5000 to my bank account.
+![](../blobs/CharlieCovid19/AlexMarcSMS2022-08-09-092920.jpeg)
+
+...and she sends a message to Charlie about the same time to let him know that she would come at 4.30pm to say hello to Charlie:
+
+![](../blobs/CharlieCovid19/AlexCharlieSMS2022-08-09-092920.jpeg)
+
+Charlie hasn't seen his mother for 5 nights and wanted to see his Mum. However, I knew that if Alex came, there'd be an altercation/scene where Alex would try and take Charlie, and I wasn't prepared to let that happen. Charlie understood what was at stake with the $5000 fine, also [based on history when Chloe had to isolate](/marcseparation/chloe_covid_test/) December last year where Charlie witnessed his Mum call the Police on his own Dad, but he was very upset. It got ugly between Alex and I at Storey Park when Chloe had to isolate, where my personal trainer witnessed it all and said - in his words - that Alex was a 'bully'. I didn't want the same thing to happen again this time around my neighbours.
+
+Then shortly after at about 4.10pm, I spoke with Alex on the phone, I told her that organising an urgent court hearing will take weeks and not days and that Charlie would be out of isolation by then, that urgent for the federal court is weeks, not days. I also told Alex about her sending me an SMS to say she'd collect Charlie at 4.45pm, then she sent another SMS to Charlie in parallel to come and see him and I told her that I wouldn't let her in, as she would try and take Charlie and that I didn't want to create a scene this time in front of the neighbours, like last time in December 2021. I went on to say, I was not prepared to take the risk of getting a $5000 fine from **NSW Health** and that Charlie would stay in isolation as per public health orders for 7 days.
+
+She then said she'd pay me and transfer the $5000 to my account if she could pick him up. Beyond my belief, minutes later she paid the $5000 to my bank account.
 
 ![](../blobs/CharlieCovid19/AlexMarcText06.png)
 
