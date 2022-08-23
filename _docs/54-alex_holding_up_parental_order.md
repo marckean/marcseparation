@@ -40,7 +40,7 @@ Draft parenting order from Ken:
 
 **Note:** school development days are the same as pupil free days, they are the same thing.
 
-What is happening here, Ken is no longer being paid for this, he doesn't care at all and obviously has taken a default parenting order and not even bothered to change anything.
+Ken no longer cares and is no longer being paid for this (Alex told this to me herself, she's not paying him to write this parenting order), and obviously has taken a default parenting order and not even bothered to change anything to adhere to Alex and I's agreement.
 
 ### History
 
