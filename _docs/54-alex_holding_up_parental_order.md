@@ -42,4 +42,10 @@ Draft parenting order from Ken:
 
 What is happening here, Ken is no longer being paid for this, he doesn't care at all and obviously has taken a default parenting order and not even bothered to change anything.
 
-I will add that this also dates back to the beginning of the year, when [even Ken was telling Alex that school development days or pupil free days were not school holidays](/marcseparation/general_events_2022/#school-holidays-ending)
+### History
+
+I will add that this also dates back to the beginning of the year, when [even Ken was telling Alex that school development days or pupil free days were not school holidays](/marcseparation/general_events_2022/#school-holidays-ending) Ken was instructing Alex the complete opposite to about school development days / pupil free days.
+
+### Circumventing NSW state public health orders
+
+You might remember [this](/marcseparation/charlie/#charlie--covid19) when Charlie was diagnosed positive with Covid19, where Alex didn't seem to want to accept the NSW public health orders and accept that Charlie was isolating with me. See the link for the details, however Alex now wanted to have a clause written in the federal court parenting order where and if the kids get Covid again, then they are allowed to move from one home to another which directly contradicts the NSW public health orders.
