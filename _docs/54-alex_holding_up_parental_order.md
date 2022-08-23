@@ -48,7 +48,7 @@ I will add that this also dates back to the beginning of the year, when [Alex ch
 
 This time there were 2 school development days (Alex calls them **staff days**), where Alex goes back on her original agreement and for me to drop the kids back before a weekend which I was previously promised to spend time with my kids. 
 
-Text date - Saturday, January 29, 2022:
+Text from Alex - Saturday, January 29, 2022:
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/parentingorderdelay/20220129_Alex_staff_day.png"></p>
 
