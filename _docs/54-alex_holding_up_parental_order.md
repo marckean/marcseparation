@@ -22,7 +22,7 @@ Alex email:
 
 Draft parenting order from Ken:
 
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="500" src="../blobs/parentingorderdelay/birthday_nights_draftorder.png"></p>
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/birthday_nights_draftorder.png"></p>
 
 Again, Alex's lawyer Ken has totally wasted her time, this next one about school development days or pupil free days.
 
@@ -32,7 +32,7 @@ Alex email:
 
 Draft parenting order from Ken:
 
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="500" src="../blobs/parentingorderdelay/school_development_days_draftorder.png"></p>
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/school_development_days_draftorder.png"></p>
 
 **Note:** school development days are the same as pupil free days, they are the same thing.
 
