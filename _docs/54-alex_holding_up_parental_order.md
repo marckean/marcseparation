@@ -2,7 +2,7 @@
 title: "Alex holding up parental order"
 permalink: /alex_holding_up_parental_order/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2022-08-23
+last_modified_at: 2022-08-24
 toc: true
 ---
 
