@@ -6,7 +6,7 @@ last_modified_at: 2022-08-23
 toc: true
 ---
 
-## Alex has been constantly holding up the parenting order to be finalised.
+## Alex has been constantly holding up the parenting order to be finalised
 
 On July 26, 12pm we had a court directions hearing, to see where we were at with the parenting order. Both lawyers didn't know anything about the latest developments, but basically, Alex and I had already spent the last several months and come up with our very own agreement and I accommodated most of her requirements to help get this over the line. The lawyers weren't aware of this. However I explained this to the registrar in this directions hearing and that the only difference was that (just like before) Alex wanted something **more** added last minute, that she would have the kids for the first Friday night or term 1/2/3 school holidays (even though I was meant to have the kids for the first half of term 1/2/3 school holidays. Alex's methodology was that so she would have the kids minimum 5 nights in a row at anytime. The registrar asked me what was the problem of just accepting it, I told her, nothing, but that Alex could come come back later with other requirements or demands that she wants. I also told the registrar that if I did accept this extra 3 Friday nights a year, that that was it, and no further changes where Alex can't come back and make further requirements or demands.
 
