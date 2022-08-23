@@ -52,7 +52,7 @@ Text date - Saturday, January 29, 2022:
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/parentingorderdelay/20220129_Alex_staff_day.png"></p>
 
-Ken was in the background instructing Alex the complete opposite to about school development days / pupil free days, in this instance that school development days / pupil free days are not part of the school holidays, but as you can see directly above in Ken's DRAFT order, they are classed as school holidays.
+Ken was in the background instructing Alex the complete opposite about school development days / pupil free days, in this instance that school development days / pupil free days are **not** part of the school holidays, but as you can see directly above in Ken's DRAFT order, school development days / pupil free days **are** classed as school holidays.
 
 ### Circumventing NSW state public health orders
 
