@@ -8,7 +8,7 @@ toc: true
 
 ## Alex has been constantly holding up the parenting order to be finalised.
 
-On July 26, 12pm we had a court directions hearing, to see where we were at with the parenting order. Both lawyers didn't know anything about the latest developments, but basically, Alex and I had already spent the last several months and come up with our very own agreement and I accommodated most of her requirements to help get this over the line. The lawyers weren't aware of this. However I explained this to the registrar in this directions hearing and that the only difference was that (just like before) Alex wanted something **more** added last minute, that she would have the kids for the first Friday night or term 1/2/3 school holidays (even though I was meant to have the kids for the first half of term 1/2/3 school holidays. Alex's methodology was that so she would have the kids minimum 5 nights in a row at anytime. The registrar asked me what was the problem of just accepting it, I told her, nothing, but that Alex could come come back later with other requirements or demands that she wants. I also told the registrar that if I did accept this extra 3 Friday nights a year, that that was it, and no further changes where Alex can't come back and make further requirements or demands. 
+On July 26, 12pm we had a court directions hearing, to see where we were at with the parenting order. Both lawyers didn't know anything about the latest developments, but basically, Alex and I had already spent the last several months and come up with our very own agreement and I accommodated most of her requirements to help get this over the line. The lawyers weren't aware of this. However I explained this to the registrar in this directions hearing and that the only difference was that (just like before) Alex wanted something **more** added last minute, that she would have the kids for the first Friday night or term 1/2/3 school holidays (even though I was meant to have the kids for the first half of term 1/2/3 school holidays. Alex's methodology was that so she would have the kids minimum 5 nights in a row at anytime. The registrar asked me what was the problem of just accepting it, I told her, nothing, but that Alex could come come back later with other requirements or demands that she wants. I also told the registrar that if I did accept this extra 3 Friday nights a year, that that was it, and no further changes where Alex can't come back and make further requirements or demands.
 
 From there, the registrar said to Alex's lawyer Ken, that he was to take Alex and I's current agreement **as is**, then just simply add in the 3 Friday nights a year and that was it. Ken hinted to the registrar that it shouldn't take too long, just a few days. This way it would form a sealed parenting agreement and no further changes. Something so simple.
 
@@ -34,7 +34,7 @@ Draft parenting order from Ken:
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="500" src="../blobs/parentingorderdelay/school_development_days_draftorder.png"></p>
 
-FYI - school development days are the same as pupil free days, they are the same thing.
+**Note:** school development days are the same as pupil free days, they are the same thing.
 
 What is happening here, Ken is no longer being paid for this, he doesn't care at all and obviously has taken a default parenting order and not even bothered to change anything.
 
