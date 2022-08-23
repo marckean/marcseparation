@@ -44,7 +44,13 @@ Ken no longer cares and is no longer being paid for this (Alex told this to me h
 
 ### History
 
-I will add that this also dates back to the beginning of the year, when [even Ken was telling Alex that school development days or pupil free days were not school holidays](/marcseparation/general_events_2022/#school-holidays-ending) Ken was instructing Alex the complete opposite to about school development days / pupil free days.
+I will add that this also dates back to the beginning of the year, when [Alex changed plans last minute and this school development day/pupil free day was related to it](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022). 
+
+This time there were 2 school development days (Alex calls them **staff days**), where Alex goes back on her original agreement and for me to drop the kids back on before a weekend which I was previously promised to spend time with my kids. 
+
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/parentingorderdelay/20220129_Alex_staff_day.png"></p>
+
+Ken was in the background instructing Alex the complete opposite to about school development days / pupil free days, in this instance that school development days / pupil free days are not part of the school holidays, but as you can see directly above in Ken's DRAFT order, they are classed as school holidays.
 
 ### Circumventing NSW state public health orders
 
