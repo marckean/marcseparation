@@ -54,7 +54,7 @@ A couple of weeks later, the authored parenting order from Ken came back with a 
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/20220609_Ken_first_stuff_up_parenting_orders.png"></p>
 
-Also as far as history goes, I will also add that in relation to `development days are the same as pupil free days` this also dates back to the beginning of the year, when [Alex changed plans last minute and this school development day/pupil free day was related to it](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022). 
+Also as far as history goes, I will also add that in relation to **development days / pupil free days be classed as school holidays** this also dates back to the beginning of the year, when [Alex changed plans last minute and this school development day/pupil free day was related to it](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022). 
 
 This time there were 2 school development days (Alex calls them **staff days**), where Alex goes back on her original agreement and for me to drop the kids back before a weekend which I was previously promised by Alex to spend time with my kids. 
 
