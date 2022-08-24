@@ -12,7 +12,7 @@ On July 26, 12pm we had a court directions hearing, to see where we were at with
 
 Alex's methodology is that she would have the kids minimum 5 nights in a row at anytime. Imagine if I had the kids the weekend just before the school holidays and dropped the kids at school on the Monday prior to the school holidays, then Alex would have the kids for Mon/Tue/Wed/Thu night and I would have the kids the Friday as it would be the start of the school holidays, but no, Alex demanded minimum 5 nights in a row. 
 
-The registrar asked me what was the problem of just accepting this new demand, I told her, nothing, but that Alex could come come back later with other requirements or demands that she wants. I also told the registrar that if I did accept this extra 3 Friday nights a year, then that was it, I wanted to finalise it and didn't want any further changes where Alex can't come back and make further requirements or demands.
+The registrar asked me what was the problem of just accepting this new demand, I told her, nothing, but that Alex could come come back later with other requirements or demands that she wants. I also told the registrar that if I did accept this extra 3 Friday nights a year, then that was it, I wanted to finalise it and didn't want any further changes where Alex could come back and make further requirements or demands.
 
 From there, the registrar said to Alex's lawyer Ken, that he was to take Alex and I's current agreement **as is**, then just simply add in the 3 Friday nights a year and that was it. Then it would be final and a sealed court order. Ken hinted to the registrar that it shouldn't take too long, just a few days. This way it would form a sealed parenting agreement and no further changes. Something so simple.
 
