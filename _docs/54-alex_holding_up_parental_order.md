@@ -46,7 +46,7 @@ Ken no longer cares and is no longer being paid for this (Alex told this to me h
 
 ### History
 
-This is not the first time Alex's lawyer Ken has failed in the task of writing parenting orders.Back in May 2022, a task so simple, Ken was to take Alex and I's agreement, then put this in legal speak. Alex sent our agreement to Ken in May 2022.
+This is not the first time Alex's lawyer Ken has failed in the task of writing parenting orders. Back in May 2022, a task so simple, Ken was to take Alex and I's agreement, then put this in legal speak. Alex sent our agreement to Ken in May 2022.
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/20220523_Alex_sends_our_agreement_to_ken.png"></p>
 
