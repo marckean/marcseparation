@@ -18,7 +18,9 @@ From there, the registrar said to Alex's lawyer Ken, that he was to take Alex an
 
 Well just yesterday (about a month later), Monday August 22, 2022 Alex dropped to me a physical copy of a **draft** parenting order that her lawyer Ken wrote up as per instructions from the registrar.
 
-It seems that Ken hasn't listened or even read Alex and I's parenting agreement at all, and got things totally wrong. This first one about the parents birthday nights.
+It seems that Ken hasn't listened or even read Alex and I's parenting agreement at all, and got things totally wrong. This is the second time Ken has failed with this simple task, [history](/marcseparation/alex_holding_up_parental_order/#history) below discusses the first time this happened.
+
+This first one about the parents birthday nights.
 
 Alex email:
 
@@ -44,7 +46,15 @@ Ken no longer cares and is no longer being paid for this (Alex told this to me h
 
 ### History
 
-I will add that this also dates back to the beginning of the year, when [Alex changed plans last minute and this school development day/pupil free day was related to it](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022). 
+This is not the first time Alex's lawyer Ken has failed in the task of writing parenting orders.Back in May 2022, a task so simple, Ken was to take Alex and I's agreement, then put this in legal speak. Alex sent our agreement to Ken in May 2022.
+
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/20220523_Alex_sends_our_agreement_to_ken.png"></p>
+
+A couple of weeks later, the authored parenting order from Ken came back with a comedy of errors throughout:
+
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/20220609_Ken_first_stuff_up_parenting_orders.png"></p>
+
+Also as far as history goes, I will also add that in relation to `development days are the same as pupil free days` this also dates back to the beginning of the year, when [Alex changed plans last minute and this school development day/pupil free day was related to it](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022). 
 
 This time there were 2 school development days (Alex calls them **staff days**), where Alex goes back on her original agreement and for me to drop the kids back before a weekend which I was previously promised by Alex to spend time with my kids. 
 
