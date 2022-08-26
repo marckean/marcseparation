@@ -225,3 +225,20 @@ Listen to the 3 recordings of Chloe constantly coughing:
 <audio src="../audio/Chloe coughing Lina Park, 3 20220130.mp3" type="audio/mpeg" controls>
   I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
 </audio>
+
+## Charlie Knock & Run
+
+Incident reported from the **Asquith Public School** from Jane Crawford, August 26, 2022.
+
+<audio src="../audio/knockandrun.m4a" type="audio/mp4" controls>
+  I'm sorry. You're browser doesn't support HTML5 <code>audio</code>.
+</audio>
+
+Knock & run - where kids run to knock on peoples doors and run. Trespassing illegally.
+
+- Charlie and others in year 5
+- Happening in the afternoons
+- Victory street in Asquith only
+- Reported by parents an other kids
+- Been happening in the last two weeks that school know of 
+- Charlie is believed to be one of the instigators
