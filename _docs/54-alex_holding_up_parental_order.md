@@ -72,15 +72,15 @@ You might remember [this](/marcseparation/charlie/#charlie--covid19) when Charli
 
 Also in these orders that Ken has written up, he's explicitly said that each parent is restrained from physically punishing the kids.
 
-![](/blobs/parentingorderdelay/KenOrderPhysicalPunishment.png)
+![](../blobs/parentingorderdelay/KenOrderPhysicalPunishment.png)
 
 However reading the actual legislation, it's ok to use physical punishment to a certain point which is reasonable, as long as it's not physical abuse. If you read the official [Physical punishment legislation](https://aifs.gov.au/resources/resource-sheets/physical-punishment-legislation) it clearly defines what is **physical punishment**:
 
-![](/blobs/parentingorderdelay/physical_punishment.png)
+![](../blobs/parentingorderdelay/physical_punishment.png)
 
 Then if we dive deeper into the legislation, in all states and territories we can see that it's **ok** to use **reasonable** physical punishment to discipline children.
 
-![](/blobs/parentingorderdelay/physical_punishment2.png)
+![](../blobs/parentingorderdelay/physical_punishment2.png)
 
 Then on page 3 of the document, it list the current Australian law regarding the use of physical punishment by parents broken down by state and territory. I quote, NSW:
 
@@ -92,7 +92,7 @@ Then on page 3 of the document, it list the current Australian law regarding the
 
 One day before the hearing, and by this time Ken has failed twice in preparing the parenting orders. An email from my lawyer Brendan today, the third attempt from Ken with the parenting orders. This time, there's been **no** change from the second attempt, however Ken has added a **notation** at the bottom:
 
-![](/blobs/parentingorderdelay/OrderNotation.png)
+![](../blobs/parentingorderdelay/OrderNotation.png)
 
 In other words, saying it's ok to go against public health orders. I have already mentioned [here and listed the exact public health orders for NSW](/marcseparation/charlie/), it says, no matter if shared care or now, isolation is isolation. 
 
