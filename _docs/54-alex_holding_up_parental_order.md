@@ -80,7 +80,7 @@ However reading the actual legislation, it's ok to use physical punishment to a 
 
 Then if we dive deeper into the legislation, in all states and territories we can see that it's **ok** to use **reasonable** physical punishment to discipline children.
 
-![](../blobs/parentingorderdelay/physicalPunishment2.png)
+![](../blobs/parentingorderdelay/PhysicalPunishment2.png)
 
 Then on page 3 of the document, it list the current Australian law regarding the use of physical punishment by parents broken down by state and territory. I quote, NSW:
 
