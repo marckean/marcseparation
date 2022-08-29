@@ -76,11 +76,11 @@ Also in these orders that Ken has written up, he's explicitly said that each par
 
 However reading the actual legislation, it's ok to use physical punishment to a certain point which is reasonable, as long as it's not physical abuse. If you read the official [Physical punishment legislation](https://aifs.gov.au/resources/resource-sheets/physical-punishment-legislation) it clearly defines what is **physical punishment**:
 
-![](../blobs/parentingorderdelay/physical_punishment.png)
+![](../blobs/parentingorderdelay/PhysicalPunishment.png)
 
 Then if we dive deeper into the legislation, in all states and territories we can see that it's **ok** to use **reasonable** physical punishment to discipline children.
 
-![](../blobs/parentingorderdelay/physical_punishment2.png)
+![](../blobs/parentingorderdelay/physicalPunishment2.png)
 
 Then on page 3 of the document, it list the current Australian law regarding the use of physical punishment by parents broken down by state and territory. I quote, NSW:
 
