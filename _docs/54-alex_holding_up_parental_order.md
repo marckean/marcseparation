@@ -40,33 +40,17 @@ Draft parenting order from Ken:
 
 <p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/school_development_days_draftorder.png"></p>
 
-**Note:** school development days are the same as pupil free days, they are the same thing.
+> **Note:** school development days are the same as pupil free days, they are the same thing.
+
+Christmas School holidays are also incorrect in this second DRAFT version of the order, as per Alex and I's agreement. The following is what was meant to be in the order, this is Alex and I's agreement:
+
+> - Starting Christmas holidays 2022, The mother will pick the kids up from the cessation of school for the year. The mother will keep the kids until Christmas day and drop the kids back to the father at 11am on Christmas day. The father will keep the kids and drop them back to the mother on New Year’s Day at midday. Then the month of January will be split in exactly half starting with New Year’s Day. The mother having the kids for the first half, then father having the kids for the second half. The kids will stay with the father in the second half and go back to school at the commencement of the school year.
+> 
+>   - This rhythm alternates year on year. 
+> 
+>   - If the month of January can't be divided equally between the mother and father, the mother gets the kids for that extra night on the first occasion, then the next Christmas where there's an uneven number of nights for January, the father gets the kids for this extra night, alternating then after.
 
 Ken no longer cares and is no longer being paid for this (Alex told this to me herself, she's not paying him to write this parenting order), and obviously has taken a default parenting order and not even bothered to change anything to adhere to Alex and I's agreement.
-
-### History
-
-This is not the first time Alex's lawyer Ken has failed in the task of writing parenting orders. Back in May 2022, a task so simple, Ken was to take Alex and I's agreement, then put this in legal speak. Alex sent our agreement to Ken in May 2022.
-
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/20220523_Alex_sends_our_agreement_to_ken.png"></p>
-
-A couple of weeks later, the authored parenting order from Ken came back with a comedy of errors throughout:
-
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/20220609_Ken_first_stuff_up_parenting_orders.png"></p>
-
-Also as far as history goes, I will also add that in relation to **development days / pupil free days be classed as school holidays** this also dates back to the beginning of the year, when [Alex changed plans last minute and this school development day/pupil free day was related to it](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022). 
-
-This time there were 2 school development days (Alex calls them **staff days**), where Alex goes back on her original agreement and for me to drop the kids back before a weekend which I was previously promised by Alex to spend time with my kids. 
-
-Text from Alex - Saturday, January 29, 2022:
-
-<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/parentingorderdelay/20220129_Alex_staff_day.png"></p>
-
-Ken was in the background instructing Alex the complete opposite about school development days / pupil free days, in this instance that school development days / pupil free days are **not** part of the school holidays, but as you can see directly above in Ken's DRAFT order, school development days / pupil free days **are** classed as school holidays.
-
-### Circumventing NSW state public health orders
-
-You might remember [this](/marcseparation/charlie/#charlie--covid19) when Charlie was diagnosed positive with Covid19, where Alex didn't seem to want to accept the NSW public health orders and accept that Charlie was isolating with me. See [the link immediately above](/marcseparation/charlie/#charlie--covid19) for the details, however Alex now wanted to have a clause written in the federal court parenting order where if the kids get Covid19 again, then they are allowed to move from one home to another which directly contradicts the NSW public health orders. My lawyer says that this will never be able to written into a parenting order. 
 
 ### Physical punishment
 
@@ -88,9 +72,33 @@ Then on page 3 of the document, it lists the current Australian law regarding th
 >
 > *This amendment did not explicitly ban the use of physical force towards children but it did introduce clearer guidelines on what is acceptable, including that physical punishment by **a parent should not harm a child more than briefly** and listing parts of a child’s body that cannot be subject to force (s 61AA).*
 
-### Update, August 29, 2022
+## History
 
-One day before the hearing, and by this time Ken has failed twice in preparing the parenting orders. An email from my lawyer Brendan today, the third attempt from Ken with the parenting orders. This time, there's been **no** change from the second attempt, however Ken has added a **notation** at the bottom:
+This is not the first time Alex's lawyer Ken has failed in the task of writing parenting orders. Back in May 2022, a task so simple, Ken was to take Alex and I's agreement, then put this in legal speak. Alex sent our agreement to Ken in May 2022.
+
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/20220523_Alex_sends_our_agreement_to_ken.png"></p>
+
+A couple of weeks later, the authored parenting order from Ken came back with a comedy of errors throughout:
+
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="600" src="../blobs/parentingorderdelay/20220609_Ken_first_stuff_up_parenting_orders.png"></p>
+
+Also as far as history goes, I will also add that in relation to **development days / pupil free days be classed as school holidays** this also dates back to the beginning of the year, when [Alex changed plans last minute and this school development day/pupil free day was related to it](/marcseparation/general_events_2022/#last-weekend-of-school-holidays-2022). 
+
+This time there were 2 school development days (Alex calls them **staff days**), where Alex goes back on her original agreement and for me to drop the kids back before a weekend which I was previously promised by Alex to spend time with my kids. 
+
+Text from Alex - Saturday, January 29, 2022:
+
+<p align="center"><img style="vertical-align:middle;margin:0px 0px 0px 0px" width="300" src="../blobs/parentingorderdelay/20220129_Alex_staff_day.png"></p>
+
+Ken was in the background instructing Alex the complete opposite about school development days / pupil free days, in this instance that school development days / pupil free days are **not** part of the school holidays, but as you can see directly above in Ken's DRAFT order, school development days / pupil free days **are** classed as school holidays.
+
+## Circumventing NSW state public health orders
+
+You might remember [this](/marcseparation/charlie/#charlie--covid19) when Charlie was diagnosed positive with Covid19, where Alex didn't seem to want to accept the NSW public health orders and accept that Charlie was isolating with me. See [the link immediately above](/marcseparation/charlie/#charlie--covid19) for the details, however Alex now wanted to have a clause written in the federal court parenting order where if the kids get Covid19 again, then they are allowed to move from one home to another which directly contradicts the NSW public health orders. My lawyer says that this will never be able to be written into a parenting order. 
+
+### Update, August 29, 2022 - third iteration
+
+One day before the directions hearing, remember that by this time Ken has failed twice in preparing the parenting orders. An email from my lawyer Brendan today contains the third attempt from Alex's lawyer **Ken** with the parenting orders. This time, there's been **no** change from the second attempt, however Ken has added a **notation** at the bottom:
 
 ![](../blobs/parentingorderdelay/OrderNotation.png)
 
