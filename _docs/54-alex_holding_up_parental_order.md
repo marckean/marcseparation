@@ -2,7 +2,7 @@
 title: "Alex holding up parental order"
 permalink: /alex_holding_up_parental_order/
 excerpt: "Instructions and suggestions for upgrading the theme."
-last_modified_at: 2022-08-24
+last_modified_at: 2022-08-29
 toc: true
 ---
 
@@ -67,3 +67,32 @@ Ken was in the background instructing Alex the complete opposite about school de
 ### Circumventing NSW state public health orders
 
 You might remember [this](/marcseparation/charlie/#charlie--covid19) when Charlie was diagnosed positive with Covid19, where Alex didn't seem to want to accept the NSW public health orders and accept that Charlie was isolating with me. See [the link immediately above](/marcseparation/charlie/#charlie--covid19) for the details, however Alex now wanted to have a clause written in the federal court parenting order where if the kids get Covid19 again, then they are allowed to move from one home to another which directly contradicts the NSW public health orders. My lawyer says that this will never be able to written into a parenting order. 
+
+### Physical punishment
+
+Also in these orders that Ken has written up, he's explicitly said that each parent is restrained from physically punishing the kids.
+
+![](/blobs/parentingorderdelay/KenOrderPhysicalPunishment.png)
+
+However reading the actual legislation, it's ok to use physical punishment to a certain point which is reasonable, as long as it's not physical abuse. If you read the official [Physical punishment legislation](https://aifs.gov.au/resources/resource-sheets/physical-punishment-legislation) it clearly defines what is **physical punishment**:
+
+![](/blobs/parentingorderdelay/physical_punishment.png)
+
+Then if we dive deeper into the legislation, in all states and territories we can see that it's **ok** to use **reasonable** physical punishment to discipline children.
+
+![](/blobs/parentingorderdelay/physical_punishment2.png)
+
+Then on page 3 of the document, it list the current Australian law regarding the use of physical punishment by parents broken down by state and territory. I quote, NSW:
+
+*The Crimes Amendment (Child Protection – Physical Mistreatment) Act 2001 (NSW) introduced an amendment to the Crimes Act 1900 (NSW) to limit the use of excessive physical force to punish children.*
+
+*This amendment did not explicitly ban the use of physical force towards children but it did introduce clearer guidelines on what is acceptable, including that physical punishment by **a parent should not harm a child more than briefly** and listing parts of a child’s body that cannot be subject to force (s 61AA).*
+
+### Update, August 29, 2022
+
+One day before the hearing, and by this time Ken has failed twice in preparing the parenting orders. An email from my lawyer Brendan today, the third attempt from Ken with the parenting orders. This time, there's been **no** change from the second attempt, however Ken has added a **notation** at the bottom:
+
+![](/blobs/parentingorderdelay/OrderNotation.png)
+
+In other words, saying it's ok to go against public health orders. I have already mentioned [here and listed the exact public health orders for NSW](/marcseparation/charlie/), it says, no matter if shared care or now, isolation is isolation. 
+
