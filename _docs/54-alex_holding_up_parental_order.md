@@ -95,4 +95,3 @@ One day before the hearing, and by this time Ken has failed twice in preparing t
 ![](../blobs/parentingorderdelay/OrderNotation.png)
 
 In other words, saying it's ok to go against public health orders. I have already mentioned [here and listed the exact public health orders for NSW](/marcseparation/charlie/), it says, no matter if shared care or now, isolation is isolation. 
-
