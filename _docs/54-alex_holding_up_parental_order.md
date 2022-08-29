@@ -84,9 +84,9 @@ Then if we dive deeper into the legislation, in all states and territories we ca
 
 Then on page 3 of the document, it lists the current Australian law regarding the use of physical punishment by parents broken down by state and territory. I quote, NSW:
 
-*The Crimes Amendment (Child Protection – Physical Mistreatment) Act 2001 (NSW) introduced an amendment to the Crimes Act 1900 (NSW) to limit the use of excessive physical force to punish children.*
-
-*This amendment did not explicitly ban the use of physical force towards children but it did introduce clearer guidelines on what is acceptable, including that physical punishment by **a parent should not harm a child more than briefly** and listing parts of a child’s body that cannot be subject to force (s 61AA).*
+> *The Crimes Amendment (Child Protection – Physical Mistreatment) Act 2001 (NSW) introduced an amendment to the Crimes Act 1900 (NSW) to limit the use of excessive physical force to punish children.*
+>
+> *This amendment did not explicitly ban the use of physical force towards children but it did introduce clearer guidelines on what is acceptable, including that physical punishment by **a parent should not harm a child more than briefly** and listing parts of a child’s body that cannot be subject to force (s 61AA).*
 
 ### Update, August 29, 2022
 
